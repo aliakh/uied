@@ -1,4 +1,4 @@
-# Aa
+---
 
 **aardvark** *(n)* an African mammal with a long, sticky tongue, which it uses to search for insects.
 
@@ -14,7 +14,7 @@
 
 ---
 
-**abattoir** *(ab-er-twar) (n)* a place where animals are killed for their meat.
+**abattoir** *(ab-er-twar)* *(n)* a place where animals are killed for their meat.
 
 ---
 
@@ -26,7 +26,7 @@
 
 ---
 
-**abdicate** *abdicating abdicated (v)* to give up being king or queen. **abdication** *(n)*.
+**abdicate** *abdicating abdicated* *(v)* to give up being king or queen. **abdication** *(n)*.
 
 ---
 
@@ -36,16 +36,16 @@
 
 ---
 
-**abduct** *abducting abducted (v)* to kidnap someone. **abduction** *(n)*.
+**abduct** *abducting abducted* *(v)* to kidnap someone. **abduction** *(n)*.
 
 ---
 
-**abhor** *abhorring abhorred (v)* to hate someone or something. **abhorrent** *(adj)*.
+**abhor** *abhorring abhorred* *(v)* to hate someone or something. **abhorrent** *(adj)*.
 
 ---
 
 **abide** *abiding abode* or *abided*
-1. *(v) (old-fashioned)* to stay or live somewhere.
+1. *(v)* *(old-fashioned)* to stay or live somewhere.
 2. *(v)* If you **cannot abide** something, you cannot put up with it.
 
 ---
@@ -65,12 +65,12 @@
 ---
 
 **able** *abler ablest*
-1. *(adj)* If you are able to do something, you can do it.
+1. *(adj)* If you are **able** to do something, you can do it.
 2. *(adj)* skilful, or clever. *Our team has many able players.* **ably** *(adv)*.
 
 ---
 
-**able-bodied** *(adj)* Someone who is able-bodied has no injuries or disabilities.
+**able-bodied** *(adj)* Someone who is **able-bodied** has no injuries or disabilities.
 
 ---
 
@@ -82,11 +82,11 @@
 
 ---
 
-**abode** *(n) (old-fashioned)* a home.
+**abode** *(n)* *(old-fashioned)* a home.
 
 ---
 
-**abolish** *abolishes abolishing abolished (v)* to put an end to something officially. *We voted to abolish school uniform.* **abolition** *(n)*.
+**abolish** *abolishes abolishing abolished* *(v)* to put an end to something officially. *We voted to abolish school uniform.* **abolition** *(n)*.
 
 ---
 
@@ -94,7 +94,7 @@
 
 ---
 
-**Aborigine** *(ab-or-ij-in-ee) (n)* one of the native people of Australia who lived there before Europeans arrived. **Aboriginal** *(adj)*.
+**Aborigine** *(ab-or-ij-in-ee)* *(n)* one of the native people of Australia who lived there before Europeans arrived.
 
 ---
 
@@ -104,7 +104,7 @@
 
 ---
 
-**abound** *abounding abounded (v)* to have a large amount of something. *The forest abounds with wildlife.*
+**abound** *abounding abounded* *(v)* to have a large amount of something. *The forest abounds with wildlife.*
 
 ---
 
@@ -120,7 +120,7 @@
 
 ---
 
-**above board** *(adj)* If something that you do is above board, it is completely honest and legal.
+**above board** *(adj)* If something that you do is **above board**, it is completely honest and legal.
 
 ---
 
@@ -148,15 +148,15 @@
 
 ---
 
-**abscess** *(ab-sess) abscesses (n)* a painful swelling, full of a yellow substance called pus.
+**abscess** *(ab-sess)* *abscesses* *(n)* a painful swelling, full of a yellow substance called pus.
 
 ---
 
-**abscond** *absconding absconded (v)* to go away suddenly and secretly, usually after doing something wrong.
+**abscond** *absconding absconded* *(v)* to go away suddenly and secretly, usually after doing something wrong.
 
 ---
 
-**abseil** *(ab-sail) abseiling abseiled (v)* to lower yourself down a steep cliff or mountain face by holding onto a rope. **abseiler** *(n)*.
+**abseil** *(ab-sail)* *abseiling abseiled* *(v)* to lower yourself down a steep cliff or mountain face by holding onto a rope. **abseiler** *(n)*.
 
 ---
 
@@ -164,7 +164,7 @@
 
 ---
 
-**absent-minded** *(adj)* If you are absent-minded, you are forgetful and do not think about what you are doing. **absent-mindedly** *(adv)*.
+**absent-minded** *(adj)* If you are **absent-minded**, you are forgetful and do not think about what you are doing. **absent-mindedly** *(adv)*.
 
 ---
 
@@ -174,18 +174,18 @@
 
 ---
 
-**absolve** *absolving absolved (v)* to pardon someone or free them from blame. **absolution** *(n)*.
+**absolve** *absolving absolved* *(v)* to pardon someone or free them from blame. **absolution** *(n)*.
 
 ---
 
 **absorb** *absorbing absorbed*
 1. *(v)* to soak up liquid. *The sponge absorbed the juice.* **absorbent** *(adj)*.
 2. *(v)* to take in information. *The students absorbed all the facts.*
-3. *(v)* If something absorbs you, it takes up all your attention.
+3. *(v)* If something **absorbs** you, it takes up all your attention.
 
 ---
 
-**abstain** *abstaining abstained (v)* to stop yourself from doing something. *The prisoners abstained from eating until their demands were met.* **abstention** *(n)*.
+**abstain** *abstaining abstained* *(v)* to stop yourself from doing something. *The prisoners abstained from eating until their demands were met.* **abstention** *(n)*.
 
 ---
 
@@ -193,17 +193,17 @@
 
 ---
 
-**absurd** *absurder absurdest (adj)* silly, or ridiculous. **absurdity** *(n)*. **absurdly** *(adv)*.
+**absurd** *absurder absurdest* *(adj)* silly, or ridiculous. **absurdity** *(n)*, **absurdly** *(adv)*.
 
 ---
 
-**abundant** *(adj)* If there is an abundant supply of something, there is plenty of it. **abundance** *(n)*. **abundantly** *(adv)*.
+**abundant** *(adj)* If there is an **abundant** supply of something, there is plenty of it. **abundance** *(n)*, **abundantly** *(adv)*.
 
 ---
 
 **abuse** *abusing abused*
-1. *(ab-yuce) (n)* rude or unkind words. **abuse** *(ab-yooze) (v)*. **abusive** *(adj)*.
-2. *(ab-yooze) (v)* to treat a person or creature cruelly. **abuse** *(ab-yuce) (n)*.
-3. *(ab-yooze) (v)* wrong or harmful use of something. *Alcohol abuse.* **abuse** *(ab-yuce) (n)*.
+1. *(ab-yuce)* *(n)* rude or unkind words. **abuse** *(ab-yooze)* *(v)*, **abusive** *(adj)*.
+2. *(ab-yooze)* *(v)* to treat a person or creature cruelly. **abuse** *(ab-yuce)* *(n)*.
+3. *(ab-yooze)* *(n)* wrong or harmful use of something. *Alcohol abuse.* **abuse** *(ab-yooze)* *(v)*.
 
 ---
