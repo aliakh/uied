@@ -9,7 +9,8 @@
       "Bash(python3 -c \"import pytesseract; print\\(pytesseract.__version__\\)\")",
       "Bash(pip install *)",
       "Bash(python3 *)",
-      "Bash(identify \"C:/GitHub/UIED/pages/page 9.png\")"
+      "Bash(identify \"C:/GitHub/UIED/pages/page 9.png\")",
+      "Bash(mkdir *)"
     ]
   }
 }
