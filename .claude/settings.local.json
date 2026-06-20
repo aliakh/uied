@@ -1,7 +1,10 @@
 {
   "permissions": {
     "allow": [
-      "Bash(python *)"
+      "Bash(python *)",
+      "Bash(magick --version)",
+      "Bash(rm \"C:/GitHub/UIED/page -1.png\")",
+      "Bash(python3 -c ' *)"
     ]
   }
 }
