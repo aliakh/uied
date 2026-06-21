@@ -69,3 +69,65 @@
 **appoint** *appointing appointed*
 1. *(v)* to choose someone for a job.
 2. *(v)* to arrange something officially. *We've already appointed a date for the match.*
+
+---
+
+**appointment**
+1. *(n)* an arrangement to meet someone at a certain time.
+2. *(n)* a job.
+
+---
+
+**appreciable** *(adj)* important enough to be noticed. *The company has lost an appreciable amount of money.*
+
+---
+
+**appreciate** *appreciating appreciated*
+1. *(v)* to enjoy or value somebody or something. **appreciation** *(n)*, **appreciative** *(adj)*, **appreciatively** *(adv)*.
+2. *(v)* to understand something. *I appreciate your point of view.*
+3. *(v)* to increase in value. **appreciation** *(n)*.
+
+---
+
+**apprehensive** *(adj)* worried and slightly afraid. *Dolores was apprehensive about making her speech.* **apprehension** *(n)*, **apprehensively** *(adv)*.
+
+---
+
+**apprentice** *(n)* someone who learns a trade or craft by working with a craftsman and attending college. **apprenticeship** *(n)*.
+
+---
+
+**approach** *approaches approaching approached*
+1. *(v)* to move nearer. **approach** *(n)*.
+2. *(v)* If you **approach** somebody, you go up to them and talk to them.
+3. *(v)* When you **approach** a problem, you think of ways of tackling it. **approach** *(n)*.
+
+---
+
+**approachable** *(adj)* If someone is **approachable**, they are friendly and easy to talk to.
+
+---
+
+**appropriate** *appropriating appropriated*
+1. *(ap-ro-pree-at)* *(adj)* suitable or right. **appropriately** *(adv)*.
+2. *(ap-ro-pree-ate)* *(v)* to take something that is not yours.
+
+---
+
+**approve** *approving approved*
+1. *(v)* If you **approve** of someone or something, you think that they are acceptable or good. **approval** *(n)*.
+2. *(v)* to accept a plan or an idea. **approval** *(n)*.
+
+---
+
+**approximate** *(adj)* more or less accurate or correct. *An approximate price.* **approximation** *(n)*, **approximately** *(adv)*.
+
+---
+
+**apricot** *(n)* a small, soft fruit with an orange skin. *See* **fruit**.
+
+---
+
+**apron**
+1. *(n)* a piece of clothing that you wear to protect your clothes when you are cooking, painting, etc.
+2. *(n)* the part of a stage in front of the curtain.
