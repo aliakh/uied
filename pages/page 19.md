@@ -1,3 +1,5 @@
+---
+
 **apparent**
 1. *(adj)* obvious or clear. *Bill's guilt was apparent to us all.*
 2. *(adj)* seeming real or true. *Claudia's apparent confidence is really a sham.* **apparently** *(adv)*.
@@ -166,3 +168,5 @@
 **Arabic**
 1. *(n)* a language spoken by many people in the Middle East and North Africa.
 2. *(n)* **Arabic numerals** are the sort of figures, such as 1, 2, 3, that we use today. *Arabic numerals are easier to use than Roman numerals.*
+
+---
