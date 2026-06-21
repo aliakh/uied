@@ -1,3 +1,5 @@
+---
+
 
 **arable** *(adj)* Arable land is used for growing crops.
 
@@ -52,5 +54,11 @@
 ---
 
 **architect** *(ar-ki-tekt)* *(n)* someone who designs buildings and checks that they are built correctly.
+
+---
+
+**architecture**
+1. *(n)* the activity of designing buildings
+2. *(n)* the style in which buildings are designed. *The selection of buildings below shows how different styles of architecture have been used for places of worship throughout the world and for a range of modern buildings.* **architectural** *(adj)* Also see **building**
 
 ---
