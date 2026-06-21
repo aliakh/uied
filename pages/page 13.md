@@ -1,159 +1,214 @@
-**antenna** *antennae or antennas*
-1. *(n)* one of the two feelers on an insect's or crustacean's head.
-2. *(n)* a device for receiving television or radio signals.
+**affect** *affecting affected* *(v)* to influence or change someone or something. *Lance's accident affected him badly.*
 
 ---
 
-**antique** *antiques* *(n)* an old object that is valuable because it is rare or beautiful. **antique** *(adj)*
+**affected** *(adj)* false and unnatural. *Gloria has an affected voice.*
 
 ---
 
-**anxious** *(adj)* worried and nervous about something. **anxiously** *(adv)* **anxiety** *(n)*
+**affection** *(n)* a great liking for someone or something. **affectionate** *(adj)* very loving. **affectionately** *(adv)*.
 
 ---
 
-**apologize** *apologizing apologized* *(v)* to say that you are sorry for something. **apology** *(n)*
+**affinity** *affinities* *(n)* If you have an affinity with someone or something, you like them and feel close to them.
 
 ---
 
-**appeal** *appealing appealed*
-1. *(v)* to ask urgently for something. *They appealed for help.*
-2. *(v)* to be attractive or interesting to someone. **appealing** *(adj)*
+**affliction** *(n)* illness, or suffering. **afflict** *(v)*.
 
 ---
 
-**appear** *appearing appeared*
-1. *(v)* to come into view. *A figure appeared in the doorway.*
-2. *(v)* to seem. *She appears to be happy.* **appearance** *(n)*
+**affluent** *(adj)* If you are affluent, you have plenty of money. **affluence** *(n)*.
 
 ---
 
-**appetite** *appetites* *(n)* a desire to eat.
+**afford** *affording afforded*
+1. *(v)* If you can afford something, you have enough money to buy it.
+2. *(v)* to have enough time or ability to do something. *I'm so far ahead, I can afford to relax.*
 
 ---
 
-**applaud** *applauding applauded* *(v)* to clap your hands to show that you have enjoyed something. **applause** *(n)*
+**afloat** *(adj)* floating on water.
 
 ---
 
-**apply** *applies applying applied*
-1. *(v)* to ask formally for something. *She applied for the job.*
-2. *(v)* to put something on a surface. *Apply the cream gently.*
-3. *(v)* to be relevant. *This rule applies to everyone.* **application** *(n)*
+**afraid**
+1. *(adj)* frightened, or worried.
+2. *(adj)* sorry. *I'm afraid I can't come to your party.*
 
 ---
 
-**appreciate** *appreciating appreciated* *(v)* to understand and enjoy the value of something. **appreciation** *(n)*
+**afresh** *(adv)* When you start afresh, you begin something again.
 
 ---
 
-**approach** *approaches approaching approached* *(v)* to come closer to something or someone.
+**aft** *(adv)* towards the back of a ship or an aeroplane.
 
 ---
 
-**appropriate** *(adj)* suitable for a particular situation or purpose.
+**after**
+1. *(prep)* later than. *After lunch.*
+2. *(prep)* following. *The puppy ran after her.*
+3. *(prep)* trying to catch someone or something. *The police are after him.*
 
 ---
 
-**approve** *approving approved* *(v)* to agree with something or think well of it. **approval** *(n)*
+**afternoon** *(n)* the time of day between midday and about five o'clock in the evening.
 
 ---
 
-**arch** *arches* *(n)* a curved structure that forms an opening or supports the weight above it.
+**afterwards** *(adv)* later.
 
 ---
 
-**architect** *architects* *(n)* someone who designs buildings. **architecture** *(n)*
+**again** *(adv)* one more time. *Say it again, Sam.*
 
 ---
 
-**area** *areas*
-1. *(n)* a region or part of a place. *A rural area.*
-2. *(n)* the size of a surface, calculated by multiplying its length by its width.
+**against**
+1. *(prep)* next to and touching. *Put your ear against the wall.*
+2. *(prep)* competing with. *It's the Chicago Bears against the Miami Dolphins tonight.*
+3. *(prep)* opposed to. *I'm against killing whales.*
 
 ---
 
-**argue** *arguing argued* *(v)* to disagree with someone, often in an angry way. **argument** *(n)*
+**agate** *(n)* a hard, semi-precious stone with bands of colour. *The picture shows a piece of agate that has been cut in half and polished.*
 
 ---
 
-**arise** *arising arose arisen* *(v)* to come up or occur. *A problem has arisen.*
+**age** *ageing or aging aged*
+1. *(n)* the number of years that someone has lived or that something has existed.
+2. *(n)* a period of time in history. *The Stone Age.*
+3. *(v)* to become or seem older.
 
 ---
 
-**arm** *arms arming armed*
-1. *(n)* the part of your body between your shoulder and your hand.
-2. *(n)* a weapon. **arms** *(n plural)*
-3. *(v)* to supply someone with weapons. **armed** *(adj)*
+**aged**
+1. *(rhymes with caged)* *(adj)* being a particular number of years old. *Anyone aged 12 can join our club.*
+2. *(ay-jid)* *(adj)* Someone who is aged is very old.
 
 ---
 
-**armour** *(n)* a metal covering worn to protect the body in battle.
+**ageism** or **agism** *(n)* prejudice or discrimination because of age. **ageist** *(adj)*.
 
 ---
 
-**army** *armies* *(n)* a large group of soldiers trained to fight on land.
+**agenda** *(aj-en-der)* *(n)* a list of things that need to be done or discussed.
 
 ---
 
-**arrange** *arranging arranged*
-1. *(v)* to plan or organize something. *We arranged a meeting.*
-2. *(v)* to put things in a particular order or position. **arrangement** *(n)*
+**agent**
+1. *(n)* someone who arranges things for other people. *Travel agent.* **agency** *(n)*.
+2. *(n)* a spy. *Secret agent.*
 
 ---
 
-**arrest** *arresting arrested* *(v)* to take someone prisoner because they may have broken the law. **arrest** *(n)*
+**aggravate** *aggravating aggravated*
+1. *(v)* to make a difficult situation even worse.
+2. *(v)* *(informal)* to annoy someone. **aggravation** *(n)*, **aggravating** *(adj)*.
 
 ---
 
-**arrive** *arriving arrived* *(v)* to reach a place at the end of a journey. **arrival** *(n)*
+**aggregate** *(ag-rig-ut)* *(n)* a total created by adding together lots of smaller amounts. *The aggregate of our scores was 25.*
 
 ---
 
-**art** *arts*
-1. *(n)* paintings, drawings, and sculptures.
-2. *(n)* subjects such as history, languages, and music. **artist** *(n)* **artistic** *(adj)*
+**aggression** *(n)* fierce or threatening behaviour. **aggressive** *(adj)*, **aggressively** *(adv)*.
 
 ---
 
-**ask** *asking asked* *(v)* to put a question to someone, or to request something.
+**aggro** *(n)* *(slang)* a short word for aggression.
 
 ---
 
-**asteroid** *asteroids* *(n)* a large rock that travels around the Sun.
+**aghast** *(ur-gast)* *(adj)* shocked, or dismayed.
 
 ---
 
-**astronaut** *astronauts* *(n)* someone who travels and works in space.
+**agile**
+1. *(adj)* If you are agile, you can move fast and easily. **agility** *(n)*.
+2. *(adj)* Someone with an agile mind can think quickly and cleverly. **agility** *(n)*.
 
 ---
 
-**atmosphere** *atmospheres*
-1. *(n)* the mixture of gases surrounding a planet.
-2. *(n)* the general feeling or mood of a place.
+**agism** *see* **ageism**.
 
 ---
 
-**atom** *atoms* *(n)* the smallest particle of a chemical element. **atomic** *(adj)*
+**agitate** *agitating agitated*
+1. *(v)* to make someone nervous and worried. **agitation** *(n)*, **agitated** *(adj)*.
+2. *(v)* to stir up a liquid.
 
 ---
 
-**attend** *attending attended* *(v)* to go to or be present at something. **attendance** *(n)*
+**agnostic** *(n)* someone who believes that you cannot know that God exists. **agnostic** *(adj)*.
 
 ---
 
-**attic** *attics* *(n)* a room in the roof space of a house.
+**ago** *(adv)* before now, or in the past. *Three days ago.*
 
 ---
 
-**audience** *audiences* *(n)* a group of people watching or listening to a performance or broadcast.
+**agony** *agonies* *(n)* great pain or suffering. *David was screaming in agony.* **agonizing** *(adj)*.
 
 ---
 
-**author** *authors* *(n)* someone who writes books, stories, or other texts.
+**agree** *agreeing agreed*
+1. *(v)* to say yes to something. *I agreed to his plan.* **agreement** *(n)*.
+2. *(v)* to share the same opinions. *Dan and I always agree on politics.*
+3. *(v)* If something agrees with you, it suits you, or is good for you.
 
 ---
 
-**autumn** *(n)* the season between summer and winter, when leaves fall from trees.
+**agreement**
+1. *(n)* the same way of thinking. *Bik and I are in agreement over that book.*
+2. *(n)* an arrangement. *We've made an agreement to share the cost of the party.*
 
 ---
+
+**agriculture** *(n)* farming. *This picture of agriculture in the Middle Ages shows labourers using scythes to mow a field.* **agricultural** *(adj)*. Also see **farm**.
+
+---
+
+**aground** *(adv)* If a boat runs aground, it gets stuck on the bottom in shallow water.
+
+---
+
+**ahead**
+1. *(adv)* in front. *Go on ahead.*
+2. *(adv)* in the future. *You must think ahead.*
+
+---
+
+**aid** *aiding aided*
+1. *(v)* to help someone. **aid** *(n)*.
+2. *(n)* money or equipment for people in need. *Foreign aid.*
+
+---
+
+**AIDS** *(n)* an incurable illness in which the body's ability to protect itself against disease is destroyed. AIDS stands for acquired immune deficiency syndrome.
+
+---
+
+**aileron** *(ay-ler-on)* *(n)* a hinged piece on an aircraft wing, used to control balance. See **aircraft**.
+
+---
+
+**ailment** *(n)* an illness, though not usually a serious one.
+
+---
+
+**aim** *aiming aimed*
+1. *(v)* to hit, throw, or shoot something in a particular direction. **aim** *(n)*.
+2. *(v)* to intend to achieve something. *I aim to become a chef.* **aim** *(n)*.
+
+---
+
+**air** *airing aired*
+1. *(n)* the invisible mixture of gases around you that you need to breathe.
+2. *(v)* to let air into a room.
+3. *(n)* an appearance, or manner. *Wanda has an air of mystery.*
+
+---
+
+**air conditioning** *(n)* a system for keeping the air in a building cool and clean when it is hot outside.
