@@ -131,3 +131,38 @@
 **apron**
 1. *(n)* a piece of clothing that you wear to protect your clothes when you are cooking, painting, etc.
 2. *(n)* the part of a stage in front of the curtain.
+
+---
+
+**apt**
+1. *(adj)* very suitable. *An apt reply.*
+2. *(adj)* quick to learn things.
+3. *(adj)* If you are **apt** to do something, you are likely to do it.
+
+---
+
+**aptitude** *(n)* a natural ability to do something well.
+
+---
+
+**aqualung** *(n)* breathing apparatus for diving. An aqualung consists of an air cylinder with a tube leading to a mouthpiece. *See* **scuba diving**.
+
+---
+
+**aquarium** *aquariums* or *aquaria* *(n)* a glass tank in which you can keep fish. *The picture shows an aquarium for tropical freshwater fish.*
+
+---
+
+**aquatic**
+1. *(adj)* living or growing in water. *Aquatic plants.*
+2. *(adj)* performed in or on water. *Aquatic sports.*
+
+---
+
+**aqueduct** *(n)* a large bridge built to carry water across a valley. *The Roman aqueduct shown below was built in France in AD 14.*
+
+---
+
+**Arabic**
+1. *(n)* a language spoken by many people in the Middle East and North Africa.
+2. *(n)* **Arabic numerals** are the sort of figures, such as 1, 2, 3, that we use today. *Arabic numerals are easier to use than Roman numerals.*
