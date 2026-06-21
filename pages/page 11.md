@@ -1,106 +1,173 @@
-**adore** *adoring adored* *(v)* to love someone or something very much. *Jo adores her little sister.* **adoration** *(n)*
+**acquaintance** *(n)* someone you have met, but you do not know very well.
 
 ---
 
-**adult** *adults* *(n)* a fully grown person or animal. **adult** *(adj)*
+**acquire** *acquiring acquired*
+1. *(v)* to obtain or get something.
+2. *(n)* If something is an acquired taste, you grow to like it slowly. *Coffee is an acquired taste.*
 
 ---
 
-**advance** *advancing advanced*
-1. *(v)* to move forward. *The troops advanced slowly.*
-2. *(n)* a forward movement.
-3. *(adj)* done before something happens. *Advance booking is required.* **advanced** *(adj)*
+**acquit** *acquitting acquitted* *(v)* to find someone not guilty of a crime. **acquittal** *(n)*.
 
 ---
 
-**advantage** *advantages* *(n)* something that helps you or is useful to you. *Having a car is a great advantage.* **advantageous** *(adj)*
+**acrobatics** *(plural n)* difficult and exciting gymnastic acts, often performed in the air or on a high wire. *The picture shows a "human column", an example of acrobatics.* **acrobat** *(n)*, **acrobatic** *(adj)*.
 
 ---
 
-**adventure** *adventures* *(n)* an exciting or dangerous experience. **adventurous** *(adj)*
+**acronym** *(n)* a word made from the first or first few letters of the words of a phrase. *Radar is an acronym for radio detecting and ranging.*
 
 ---
 
-**adverb** *adverbs* *(n)* a word that describes a verb, an adjective, or another adverb. "Quickly" and "very" are adverbs.
+**across**
+1. *(prep)* from one side to the other. *We ran across the field.*
+2. *(prep)* on the other side. *Emma lives across the street from me.*
 
 ---
 
-**advertise** *advertising advertised* *(v)* to tell people publicly about things that are for sale. **advertisement** *(n)*
+**acrylic** *(ak-rill-ik) (n)* a chemical substance used to make fibres and paints.
 
 ---
 
-**advice** *(n)* suggestions about what someone should do. *My advice is to stay indoors.*
+**act** *acting acted*
+1. *(v)* to do something. *We must act now to save the rainforests.* **act** *(n)*.
+2. *(v)* to perform in a play, film, etc.
+3. *(v)* to have an effect. *This drug acts very quickly.*
+4. *(n)* a short performance. *A comedy act.*
+5. *(n)* one of the parts of a play.
+6. *(n)* a law made by parliament.
 
 ---
 
-**advise** *advising advised* *(v)* to give someone advice. **adviser** *(n)*
+**action**
+1. *(n)* something that you do to achieve a result. *Kamran's rapid action prevented a serious accident.*
+2. When you **take action**, you do something for a purpose.
 
 ---
 
-**aerial**
-1. *(n)* a device that receives television or radio signals.
-2. *(adj)* from the air. *An aerial photograph.*
+**active**
+1. *(adj)* energetic and busy.
+2. *(adj)* An **active** verb is one where the verb's subject does the action, rather than having something done to it. *In the sentence, "I kicked the ball", the verb is active, but in "The ball was kicked", the verb is passive.*
 
 ---
 
-**affect** *affecting affected* *(v)* to have an effect on something or someone. *The cold weather affected our plans.*
+**activity** *activities*
+1. *(n)* action, or movement. *The playground was full of activity.*
+2. *(n)* something that you do for pleasure. *Leisure activities.*
 
 ---
 
-**afford** *affording afforded* *(v)* to have enough money to pay for something. *Can you afford a new bike?*
+**actor** *(n)* someone who performs in the theatre, films, television, etc.
 
 ---
 
-**afraid** *(adj)* frightened or worried about something.
+**actual** *(adj)* real, or true. **actually** *(adv)*.
 
 ---
 
-**age** *ages aging aged*
-1. *(n)* the number of years that someone or something has existed.
-2. *(n)* a period of history. *The Ice Age.*
-3. *(v)* to grow old. **aged** *(adj)*
+**acupuncture** *(ak-yoo-punk-cher) (n)* a way of treating illness by pricking parts of the body with small needles.
 
 ---
 
-**agenda** *agendas* *(n)* a list of things to be discussed or done at a meeting.
+**acute** *acuter acutest*
+1. *(adj)* sharp, or severe. *Acute pain.*
+2. *(adj)* able to detect things easily. *Dogs have an acute sense of smell.* **acuteness** *(n)*, **acutely** *(adv)*.
+3. *(adj)* An **acute angle** is an angle of less than 90°.
 
 ---
 
-**agent** *agents* *(n)* someone who does business or arranges things for other people. *A travel agent.*
+**AD** the initials of the Latin phrase *Anno Domini*, which means "In the year of the Lord". AD is used to show that a date comes after the birth of Christ. *Columbus discovered America in AD1492.*
 
 ---
 
-**aggressive** *(adj)* likely to attack or use force. **aggression** *(n)* **aggressively** *(adv)*
+**adapt** *adapting adapted*
+1. *(v)* to make something suitable for a different purpose. *We have adapted our garage into a games room.*
+2. *(v)* to change because you are in a new situation. *It can be hard to adapt to life in a foreign country.* **adaptable** *(adj)*.
 
 ---
 
-**agile** *(adj)* able to move quickly and easily. **agility** *(n)*
+**adapter** or **adaptor** *(n)* a type of electrical plug that you use to connect two or more plugs to one socket.
 
 ---
 
-**agony** *(n)* very great pain or suffering. **agonizing** *(adj)*
+**add** *adding added*
+1. *(v)* to put one thing with another. *Add the eggs to the flour.*
+2. *(v)* to put numbers together to make a total. **addition** *(n)*.
 
 ---
 
-**agree** *agreeing agreed*
-1. *(v)* to say yes to something.
-2. *(v)* to have the same opinion as someone else. **agreement** *(n)*
+**adder** *(n)* a small, poisonous snake, sometimes called a viper. *The common adder is found in Britain.*
 
 ---
 
-**ahead** *(adv)* in front, or further forward. *The finish line is just ahead.*
+**addict** *(n)* someone who cannot give up doing or using something. *A drug addict.* **addiction** *(n)*, **addicted** *(adj)*.
 
 ---
 
-**aim** *aiming aimed*
-1. *(v)* to point a weapon at a target.
-2. *(v)* to plan or intend to do something. *We aim to arrive by noon.*
-3. *(n)* a goal or plan. **aimless** *(adj)*
+**addictive** *(adj)* If something, like a drug, is **addictive**, people find it very hard to give it up. *Tobacco is addictive.*
 
 ---
 
-**air** *airs airing aired*
-1. *(n)* the mixture of gases around the Earth that people and animals breathe.
-2. *(v)* to let fresh air into a place.
+**additive** *(n)* something added to a substance to change it in some way. *Jon tries not to eat food with additives.*
 
 ---
+
+**address** *addresses addressing addressed*
+1. *(n)* the details of the place where someone lives. *What's your address?*
+2. *(v)* to write an address on a letter, card, or package.
+3. *(n)* the series of letters (and sometimes numbers) that you type into a computer to enable a browser to find a particular Web site or page. *What's the address for that Web site?*
+
+---
+
+**adenoids** *(ad-in-oyds) (plural n)* spongy lumps of flesh at the back of your nose.
+
+---
+
+**adequate** *(adj)* just enough, or good enough. **adequately** *(adv)*.
+
+---
+
+**adhesive** *(n)* a substance, such as glue, that makes things stick together. **adhesive** *(adj)*.
+
+---
+
+**adjacent** *(adj)* close or next to something or someone. *Our families live in adjacent streets.*
+
+---
+
+**adjective** *(n)* a word that describes someone or something. *In the phrase, "A tall, handsome stranger", "tall" and "handsome" are adjectives.* **adjectival** *(adj)*. *See page 3.*
+
+---
+
+**adjudicate** *adjudicating adjudicated* *(v)* to judge something, like a competition. **adjudication** *(n)*, **adjudicator** *(n)*.
+
+---
+
+**adjust** *adjusting adjusted*
+1. *(v)* to move or change something slightly. **adjustment** *(n)*, **adjustable** *(adj)*.
+2. *(v)* to get used to something new and different. **adjustment** *(n)*.
+
+---
+
+**ad lib** *ad libbing ad libbed* *(v)* to speak in public without preparing first. **ad lib** *(adv)*.
+
+---
+
+**administer** *administering administered*
+1. *(v)* to govern or control something. *Nat administers the team funds.* **administration** *(n)*.
+2. *(v)* to give something to someone. *The nurse administered the medicine.*
+
+---
+
+**administrate** *administrating administrated* *(v)* to manage and control an organization. **administration** *(n)*, **administrator** *(n)*.
+
+---
+
+**admiral** *(n)* an officer who holds a very high rank in the British navy. *The picture shows a statue of Admiral Nelson.*
+
+---
+
+**admire** *admiring admired*
+1. *(v)* to like and respect someone. **admiration** *(n)*.
+2. *(v)* to look at something and enjoy it.
