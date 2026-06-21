@@ -1,137 +1,119 @@
-**beast** *beasts* *(n)* a large or frightening animal.
+---
+
+**ambition**
+1. *(n)* something that you really want to do. *My ambition is to be a film star.*
+2. *(n)* a strong wish to be successful. *Jo is driven by ambition.* **ambitious** *(adj)*.
 
 ---
 
-**beat** *beating beat beaten*
-1. *(v)* to hit someone or something many times.
-2. *(v)* to defeat someone. *Our team beat theirs.*
-3. *(n)* a regular rhythm. *The beat of a drum.*
+**ambivalent** *(adj)* If you feel ambivalent about something, you have two different opinions about it at the same time. **ambivalence** *(n)*.
 
 ---
 
-**beautiful** *(adj)* very attractive or pleasing. **beautifully** *(adv)* **beauty** *(n)*
+**amble** *ambling ambled* *(v)* to walk slowly because you are not in a hurry.
 
 ---
 
-**because** *(conj)* for the reason that. *I stayed in because it was raining.*
+**ambulance** *(n)* a vehicle that takes people to hospital when they are ill.
 
 ---
 
-**become** *becoming became* *(v)* to start to be something. *The caterpillar became a butterfly.*
+**ambush** *ambushes ambushing ambushed* *(v)* to hide and then attack someone. **ambush** *(n)*.
 
 ---
 
-**before**
-1. *(prep)* earlier than. *Before noon.*
-2. *(adv)* at an earlier time. *I have been here before.*
+**amenity** *amenities* *(n)* something that is available for everyone to use and enjoy, such as a sports centre.
 
 ---
 
-**begin** *beginning began begun* *(v)* to start. **beginning** *(n)*
+**ammonia** *(n)* a gas or solution with a strong smell. Some cleaning liquids contain ammonia.
 
 ---
 
-**behave** *behaving behaved* *(v)* to act in a particular way. *Behave yourself!* **behaviour** *(n)*
+**ammunition**
+1. *(n)* things that can be fired from weapons, such as bullets or arrows.
+2. *(n)* information that you can use against somebody else.
 
 ---
 
-**believe** *believing believed* *(v)* to think that something is true. **belief** *(n)*
+**amnesty** *amnesties*
+1. *(n)* an official promise by a government to release prisoners or pardon crimes.
+2. *(n)* a chance to hand in something you should not possess, without being punished.
 
 ---
 
-**belong** *belonging belonged*
-1. *(v)* to be owned by someone. *This book belongs to me.*
-2. *(v)* to be a member of a group.
+**amoeba** *(am-ee-ber)* *amoebas or amoebae* *(n)* a microscopic creature made of only one cell. *The diagram shows the parts of an amoeba.*
 
 ---
 
-**below**
-1. *(prep)* lower than something. *Below the surface.*
-2. *(adv)* at a lower level.
+**among** or **amongst**
+1. *(prep)* surrounded by other people or things.
+2. *(prep)* If you share something among several people, you divide it between them.
 
 ---
 
-**bend** *bending bent*
-1. *(v)* to make something curved or angled.
-2. *(v)* to lean your body downwards.
-3. *(n)* a curve in a road or river.
+**amount** *amounting amounted*
+1. *(n)* The amount of something is how much of it there is.
+2. *(v)* If something amounts to a total, it adds up to it.
 
 ---
 
-**benefit** *benefits*
-1. *(n)* something that helps you or is good for you.
-2. *(v)* to gain an advantage from something.
+**amp** *(n)* a unit which measures the strength of an electrical current. Amp is short for ampere.
 
 ---
 
-**between** *(prep)* in the space or time that separates two things or people.
+**amphibian**
+1. *(n)* an animal that lives on land, but breeds in water. *Frogs, toads, and newts are amphibians.* **amphibious** *(adj)*.
+2. *(n)* a vehicle that can travel on land and in water. **amphibious** *(adj)*.
 
 ---
 
-**bite** *biting bit bitten*
-1. *(v)* to cut or grip with your teeth.
-2. *(n)* a wound made by teeth or an insect.
+**amphitheatre** *(n)* a large, open-air building, built in Roman times, with rows of seats in a high circle around an arena. Amphitheatres were used for public entertainments, such as gladiator and animal fights. *The picture shows a famous amphitheatre.*
 
 ---
 
-**blind** *(adj)* not able to see. **blindness** *(n)*
+**ample** *ampler amplest*
+1. *(adj)* more than enough. *There was ample food for everyone.* **amply** *(adv)*.
+2. *(adj)* large. *Moira has an ample figure.*
 
 ---
 
-**block** *blocks blocking blocked*
-1. *(n)* a solid piece of a hard material.
-2. *(v)* to stop something from getting past.
+**amplifier** *(n)* a piece of equipment that makes sound louder. **amplification** *(n)*, **amplify** *(v)*.
 
 ---
 
-**blood** *(n)* the red liquid that your heart pumps around your body. **bloody** *(adj)*
+**amputate** *amputating amputated* *(v)* to cut off someone's arm or leg because it is damaged or diseased. **amputation** *(n)*.
 
 ---
 
-**blow** *blowing blew blown*
-1. *(v)* to push air out of your mouth.
-2. *(v)* to move through the air. *The wind blew hard.*
-3. *(n)* a hard hit.
+**amuse** *amusing amused*
+1. *(v)* to make someone laugh or smile. **amusing** *(adj)*.
+2. *(v)* to keep someone happy and stop them from being bored. *Dad's new camera kept him amused for hours.* **amusement** *(n)*.
 
 ---
 
-**body** *bodies* *(n)* the whole physical structure of a person or animal.
+**anaemic** *(a-nee-mik)* *(adj)* If you are anaemic, you become easily tired and weak because your blood does not contain enough iron. **anaemia** *(n)*.
 
 ---
 
-**bone** *bones* *(n)* one of the hard, white pieces that form the skeleton of a person or animal. **bony** *(adj)*
+**anaesthetic** *(an-iss-thet-ik)* *(n)* a drug or gas given to someone before an operation to prevent them from feeling pain. **anaesthetist** *(an-ees-the-tist)* *(n)*.
 
 ---
 
-**border** *borders* *(n)* the line or boundary between two countries or areas.
+**anagram** *(n)* a word or phrase made by changing the order of letters in another word or phrase. *Stop is an anagram of post.*
 
 ---
 
-**brave** *(adj)* willing to do dangerous or difficult things without showing fear. **bravely** *(adv)* **bravery** *(n)*
+**analyse** *analysing analysed* *(v)* to examine something carefully in order to understand it. *Let's analyse the problem before we do anything.* **analysis** *(n)*, **analytical** *(adj)*.
 
 ---
 
-**break** *breaking broke broken*
-1. *(v)* to smash or damage something so that it is in pieces or no longer works.
-2. *(n)* a short rest. *A lunch break.*
+**anarchy** *(n)* a situation with no order and no one in control. **anarchist** *(n)*.
 
 ---
 
-**breathe** *breathing breathed* *(v)* to take air in and let it out through your nose or mouth. **breath** *(n)*
-
----
-
-**bright** *brighter brightest*
-1. *(adj)* giving out or reflecting a lot of light.
-2. *(adj)* intelligent and quick to learn.
-3. *(adj)* vivid in colour. **brightly** *(adv)* **brightness** *(n)*
-
----
-
-**bring** *bringing brought* *(v)* to carry something or someone to a place.
-
----
-
-**build** *building built* *(v)* to make something by putting parts together. **builder** *(n)* **building** *(n)*
+**anatomy**
+1. *(n)* The anatomy of a person or an animal is the structure of their body.
+2. *(singular n)* the study of how the bodies of people and animals fit together. **anatomical** *(adj)*.
 
 ---
