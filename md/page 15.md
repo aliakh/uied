@@ -1,5 +1,3 @@
----
-
 **alike**
 1. *(adj)* looking or acting the same.
 2. *(adv)* in a similar way. *All the children were treated alike.*

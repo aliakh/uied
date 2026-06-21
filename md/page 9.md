@@ -1,5 +1,3 @@
----
-
 **aardvark** *(n)* an African mammal with a long, sticky tongue, which it uses to search for insects.
 
 ---

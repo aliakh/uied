@@ -1,5 +1,3 @@
----
-
 **aircraft** *(n)* a vehicle that can fly. *The picture shows a Boeing 747-400 aircraft, known as a jumbo jet, because of its enormous size. It can carry up to 500 passengers and cruises at around 600 miles (965km) per hour.*
 
 ---

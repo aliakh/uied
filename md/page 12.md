@@ -1,5 +1,3 @@
----
-
 **admit** *admitting admitted*
 1. *(v)* to confess to something, or agree that something is true, often reluctantly. **admission** *(n)*.
 2. *(v)* to allow someone or something to enter. **admission** *(n)*, **admittance** *(n)*.

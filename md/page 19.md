@@ -1,5 +1,3 @@
----
-
 **apparent**
 1. *(adj)* obvious or clear. *Bill's guilt was apparent to us all.*
 2. *(adj)* seeming real or true. *Claudia's apparent confidence is really a sham.* **apparently** *(adv)*.

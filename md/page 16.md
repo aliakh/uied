@@ -1,5 +1,3 @@
----
-
 **ambition**
 1. *(n)* something that you really want to do. *My ambition is to be a film star.*
 2. *(n)* a strong wish to be successful. *Jo is driven by ambition.* **ambitious** *(adj)*.

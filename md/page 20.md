@@ -1,6 +1,3 @@
----
-
-
 **arable** *(adj)* Arable land is used for growing crops.
 
 ---

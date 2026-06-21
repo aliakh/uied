@@ -1,5 +1,3 @@
----
-
 **abysmal** *(ab-iz-mal)* *(adj)* very bad, or terrible. **abysmally** *(adv)*.
 
 ---

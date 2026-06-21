@@ -1,5 +1,3 @@
----
-
 **anteater** *(n)* a South American mammal with a very long tongue that it uses to search for ants and other small insects.
 
 ---

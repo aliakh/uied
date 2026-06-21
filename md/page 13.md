@@ -1,5 +1,3 @@
----
-
 **affect** *affecting affected* *(v)* to influence or change someone or something. *Lance's accident affected him badly.*
 
 ---

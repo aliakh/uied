@@ -1,5 +1,3 @@
----
-
 **acquaintance** *(n)* someone you have met, but you do not know very well.
 
 ---
