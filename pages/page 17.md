@@ -116,3 +116,70 @@
 **announce** *announcing announced* *(v)* to say something officially or publicly. **announcement** *(n)*.
 
 ---
+
+**announcer** *(n)* someone who introduces programmes on television or radio.
+
+---
+
+**annoy** *annoying annoyed* *(v)* to make someone feel angry. *Dudley really annoys me when he puts on that stupid voice.* **annoyance** *(n)*, **annoying** *(adj)*, **annoyingly** *(adv)*.
+
+---
+
+**annual**
+1. *(adj)* happening once every year or over a period of one year. *The annual writing competition.* *An annual subscription.* **annually** *(adv)*.
+2. *(n)* a book published once a year.
+3. *(n)* a plant that only lives for one year. *Sunflowers are annuals.*
+
+---
+
+**anon**
+1. *(adj)* **Anon** is short for **anonymous**.
+2. See you **anon** means see you soon.
+
+---
+
+**anonymous** *(adj)* written, done, or given by a person whose name is not known. *An anonymous letter.* **anonymity** *(n)*, **anonymously** *(adv)*.
+
+---
+
+**anorak** *(n)* a waterproof jacket with a hood.
+
+---
+
+**anorexia** *(n)* If someone suffers from **anorexia**, they think that they are too fat and so they eat very little and become dangerously thin. **Anorexia** is short for **anorexia nervosa**. **anorexic** *(n)*, **anorexic** *(adj)*.
+
+---
+
+**another**
+1. *(adj)* one more of the same kind. *Have another sweet.*
+2. *(pronoun)* a different one. *I didn't like the red dress, so I chose another.*
+
+---
+
+**answer** *answering answered*
+1. *(v)* to say or write something as a reply to a question. **answer** *(n)*.
+2. *(n)* the solution to a problem. *Is there an answer to world poverty?*
+3. *(v)* If you **answer back**, you make a rude or cheeky reply.
+4. If someone has **a lot to answer for**, they have caused a lot of trouble.
+
+---
+
+**answerable** *(adj)* responsible. *Each leader is answerable for the safety of her group.*
+
+---
+
+**answering machine** *(n)* a machine connected to or built into a telephone, which records messages from people who telephone while you are out.
+
+---
+
+**ant** *(n)* a small insect with no wings that lives in a group called a colony. See **desert**, **insect**.
+
+---
+
+**antagonize** or **antagonise** *antagonizing antagonized* *(v)* If you **antagonize** someone, you make them feel very angry with you. **antagonism** *(n)*, **antagonist** *(n)*.
+
+---
+
+**Antarctic** *(n)* the area around the South Pole. **Antarctic** *(adj)*. See **polar**.
+
+---
