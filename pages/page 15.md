@@ -1,143 +1,187 @@
-**average** *averages*
-1. *(n)* the number you get by adding a set of numbers together and dividing the total by the number of numbers in the set. *The average of 3, 5, and 7 is 5.*
-2. *(adj)* normal or ordinary. *An average day.*
+---
+
+**alike**
+1. *(adj)* looking or acting the same.
+2. *(adv)* in a similar way. *All the children were treated alike.*
 
 ---
 
-**avoid** *avoiding avoided* *(v)* to keep away from someone or something. **avoidance** *(n)*
+**alive**
+1. *(adj)* living.
+2. *(adj)* full of life.
 
 ---
 
-**aware** *(adj)* knowing about something. *Are you aware of the danger?* **awareness** *(n)*
+**alkali** *(al-ka-lye)* *(n)* a substance which turns red litmus paper blue. Strong alkalis can burn your skin. *Toothpaste is an alkali.* **alkaline** *(adj)*.
 
 ---
 
-**awful** *(adj)* very bad or unpleasant. **awfully** *(adv)*
+**Allah** *(n)* the Muslim name for God.
 
 ---
 
-**awkward** *(adj)*
-1. clumsy and not graceful.
-2. difficult or embarrassing. *An awkward silence.* **awkwardly** *(adv)*
+**allegiance** *(a-lee-jenss)* *(n)* loyal support for someone or something.
 
 ---
 
-**baby** *babies* *(n)* a very young child or animal. **babyish** *(adj)*
+**allergic** *(adj)* If you are allergic to something, it makes you ill. *Ned is allergic to cats.* **allergy** *(n)*.
 
 ---
 
-**back** *backs*
-1. *(n)* the rear part of your body, between your neck and your bottom.
-2. *(n)* the rear part of something. *The back of the house.*
-3. *(adj)* at the rear. *The back door.*
-4. *(adv)* in return. *Give it back.*
+**alliance** *(n)* a friendly agreement to work together.
 
 ---
 
-**background** *backgrounds*
-1. *(n)* the part of a picture behind the main subject.
-2. *(n)* a person's family, education, and experiences.
+**alligator** *(n)* a large reptile like a crocodile, with strong jaws and very sharp teeth. Alligators live in parts of North and South America and China.
 
 ---
 
-**bacteria** *(n plural)* very tiny living things. Some bacteria cause disease, while others are useful. **bacterium** *(n singular)*
+**alliteration** *(n)* repeated use of the same sound at the beginning of a group of words, for example, *"The gruesome ghost gave a ghastly groan."* **alliterative** *(adj)*.
 
 ---
 
-**bake** *baking baked* *(v)* to cook food in an oven. **baker** *(n)* **bakery** *(n)*
+**allocate** *allocating allocated* *(v)* to decide that something should be used for a particular purpose. *We allocated half the money to charity.* **allocation** *(n)*.
 
 ---
 
-**balance** *balancing balanced*
-1. *(v)* to keep yourself or something steady and upright.
-2. *(n)* steadiness. *She lost her balance and fell.* **balanced** *(adj)*
+**allotment** *(n)* a small piece of land that people can rent and use to grow vegetables, fruit, or flowers.
 
 ---
 
-**ball** *balls* *(n)* a round object used in games and sports.
+**allow** *allowing allowed* *(v)* to let someone have or do something.
 
 ---
 
-**balloon** *balloons* *(n)* a small, colourful bag of thin rubber that you blow up with air.
+**allowance** *(n)* money given to someone regularly.
 
 ---
 
-**ban** *banning banned*
-1. *(v)* to say officially that something is not allowed.
-2. *(n)* an official ruling that something is not allowed.
+**alloy** *(n)* a mixture of two or more metals.
 
 ---
 
-**band** *bands*
-1. *(n)* a group of musicians who play together.
-2. *(n)* a flat, narrow strip of material.
+**all right**
+1. *(adj)* good enough, or acceptable.
+2. *(adj)* not hurt, or not ill. *Helena fell off her horse, but she's all right now.*
+3. *(interject)* You say all right when you agree to do something.
 
 ---
 
-**bandage** *bandages* *(n)* a strip of cloth used to cover and protect a wound.
+**ally** *(al-eye)* *allies* *(n)* a person or a country that gives support to another.
 
 ---
 
-**bang** *banging banged*
-1. *(n)* a sudden, loud noise.
-2. *(v)* to hit something hard and noisily.
+**almighty**
+1. *(adj)* very big. *An almighty crash.*
+2. *(adj)* possessing total power.
 
 ---
 
-**bank** *banks*
-1. *(n)* a place where people keep their money safely.
-2. *(n)* the raised ground along the side of a river.
+**almost** *(adv)* very nearly.
 
 ---
 
-**bare** *barer barest* *(adj)* not covered or not decorated. *Bare feet.* **barely** *(adv)*
+**alone** *(adj)* by yourself. **alone** *(adv)*.
 
 ---
 
-**bark** *barking barked*
-1. *(n)* the hard outer covering of a tree.
-2. *(v)* to make the short, loud sound a dog makes. **bark** *(n)*
+**along**
+1. *(prep)* from one end to the other. *We drove along the street.*
+2. *(adj along)* *(adv)* all the time. *I knew all along that Hal was lying.*
 
 ---
 
-**barn** *barns* *(n)* a large farm building for storing crops or keeping animals.
+**aloud** *(adv)* in a voice that other people can hear. *Reading aloud.*
 
 ---
 
-**base** *bases basing based*
-1. *(n)* the bottom part of something.
-2. *(n)* the main place from which people work or operate.
-3. *(v)* to use a place as your centre for activities.
+**alphabet** *(n)* all the letters of a language arranged in order. *The first six letters of the Greek alphabet are shown below.* **alphabetical** *(adj)*.
 
 ---
 
-**basic** *(adj)* at the simplest level, or most important. **basically** *(adv)*
+**already** *(adv)* before now. *I've seen that film already.*
 
 ---
 
-**bat** *bats*
-1. *(n)* a piece of wood used to hit a ball in sports such as cricket.
-2. *(n)* a small, flying mammal that hunts insects at night.
+**also** *(adv)* as well.
 
 ---
 
-**bath** *baths*
-1. *(n)* a large container that you fill with water to wash yourself in.
-2. *(v)* to wash someone in a bath.
+**altar** *(n)* a large table in a church or a temple, used for religious ceremonies.
 
 ---
 
-**battle** *battles* *(n)* a fight between two armies or groups. **battle** *(v)*
+**alter** *altering altered* *(v)* to change something. *We've altered our plans.* **alteration** *(n)*.
 
 ---
 
-**beach** *beaches* *(n)* an area of sand or pebbles beside the sea or a lake.
+**alternate** *(ol-ter-nat)* *(adj)* If something happens on alternate days, it happens every second day. **alternate** *(ol-ter-nate)* *(v)*.
 
 ---
 
-**bear** *bears bearing bore borne*
-1. *(n)* a large, heavy mammal with thick fur.
-2. *(v)* to carry or support something.
-3. *(v)* to put up with something. *I cannot bear the noise.*
+**alternative**
+1. *(n)* something you can choose to have or do instead of something else. **alternative** *(adj)*, **alternatively** *(adv)*.
+2. *(adj)* different from what is usual. *Alternative medicine.*
+
+---
+
+**although**
+1. *(conj)* in spite of something. *Although it was wet, we had fun.*
+2. *(conj)* but. *Natalie is only nine, although she seems much older.*
+
+---
+
+**altitude** *(n)* the height of something above the ground. *This plane can fly at very high altitudes.*
+
+---
+
+**alto**
+1. *(n)* a singing voice that is quite high for a man and quite low for a woman.
+2. *(n)* a singer with an alto voice.
+
+---
+
+**altogether**
+1. *(adv)* in total. *Pippa has seven hats altogether.*
+2. *(adv)* completely, or entirely. *What I told you wasn't altogether true.*
+3. *(adv)* on the whole. *Altogether, it was a very good party.*
+
+---
+
+**aluminium** *(n)* a light, silver-coloured metal.
+
+---
+
+**always** *(adv)* If something is always happening, it happens all the time or very many times.
+
+---
+
+**Alzheimer's disease** *(alts-hi-merz-diz-eez)* *(n)* a disease that affects a person's brain, making it gradually harder for them to think clearly or remember things. Alzheimer's disease usually only affects people in old age.
+
+---
+
+**a.m.** the initials of the Latin phrase *ante meridiem*, which means "before midday". *I get up at 7 a.m.*
+
+---
+
+**amateur** *(n)* someone who takes part in a sport or other activity for pleasure rather than for money.
+
+---
+
+**amaze** *amazing amazed* *(v)* to make someone feel very surprised. **amazement** *(n)*, **amazing** *(adj)*, **amazingly** *(adv)*.
+
+---
+
+**amber**
+1. *(n)* an orangey-yellow colour. **amber** *(adj)*.
+2. *(n)* a yellowish substance, formed from fossilized tree sap, and used for making ornaments and jewellery. *This piece of amber contains an insect that was trapped in the sap before it hardened and fossilized.*
+
+---
+
+**ambidextrous** *(adj)* If you are ambidextrous, you can use both hands equally well, especially for writing.
+
+---
+
+**ambiguous** *(am-big-yoo-uss)* *(adj)* If something is ambiguous, it can be understood in more than one way. *Conrad gave an ambiguous answer.* **ambiguity** *(am-big-you-it-ee)* *(n)*.
 
 ---

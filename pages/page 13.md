@@ -1,3 +1,5 @@
+---
+
 **affect** *affecting affected* *(v)* to influence or change someone or something. *Lance's accident affected him badly.*
 
 ---
@@ -212,3 +214,5 @@
 ---
 
 **air conditioning** *(n)* a system for keeping the air in a building cool and clean when it is hot outside.
+
+---

@@ -1,3 +1,5 @@
+---
+
 **acquaintance** *(n)* someone you have met, but you do not know very well.
 
 ---
@@ -171,3 +173,5 @@
 **admire** *admiring admired*
 1. *(v)* to like and respect someone. **admiration** *(n)*.
 2. *(v)* to look at something and enjoy it.
+
+---
