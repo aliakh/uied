@@ -1,10 +1,10 @@
 **arctic**
-1. The **Arctic** *(n)* the frozen area around the North Pole. **Arctic** *(adj)*. See **polar**.
+1. **The Arctic** *(n)* the frozen area around the North Pole. **Arctic** *(adj)*. See **polar**.
 2. *(adj)* extremely cold and wintry. *Arctic weather conditions.*
 
 ---
 
-**ardent** *(adj)* If you are ardent about something, you feel very strongly about it. **ardently** *(adv)*
+**ardent** *(adj)* If you are ardent about something, you feel very strongly about it. ardently *(adv)*
 
 ---
 
@@ -23,8 +23,8 @@
 ---
 
 **argue** *arguing argued*
-1. *(v)* to disagree with someone angrily. **argument** *(n)*, **argumentative** *(adj)*
-2. *(v)* to give your opinion about something. *She argued that whaling was cruel.* **argument** *(n)*
+1. *(v)* to disagree with someone angrily. argument *(n)*, argumentative *(adj)*
+2. *(v)* to give your opinion about something. *Sean argued that whaling was cruel.* argument *(n)*
 
 ---
 
@@ -38,7 +38,7 @@
 
 ---
 
-**aristocrat** *(n)* a member of the highest social rank, or nobility. **aristocracy** *(n)*, **aristocratic** *(adj)*
+**aristocrat** *(n)* a member of the highest social rank, or nobility. aristocracy *(n)*, **aristocratic** *(adj)*
 
 ---
 
@@ -53,7 +53,7 @@
 
 ---
 
-**armadillo** *(n)* a mammal covered by hard, bony plates. *The nine-banded armadillo shown here is found in North and South America.*
+**armadillo** *(n)* a mammal covered by hard, bony plates. *The nine-banded armadillo is found in North and South America.*
 
 ---
 
@@ -75,7 +75,7 @@
 
 ---
 
-**armoured vehicle** *(n)* a tank or other military vehicle with a strong metal covering. *An armoured vehicle is used for carrying troops.*
+**armoured vehicle** *(n)* a tank or other military vehicle with a strong metal covering. *This armoured vehicle is used for carrying troops.*
 
 ---
 
@@ -83,11 +83,11 @@
 
 ---
 
-**army** *armies (n)* a large group of people trained to fight on land.
+**army** *armies* *(n)* a large group of people trained to fight on land.
 
 ---
 
-**aroma** *(n)* a pleasant smell. **aromatic** *(adj)*
+**aroma** *(n)* a pleasant smell. aromatic *(adj)*
 
 ---
 
@@ -100,31 +100,31 @@
 
 **arouse** *arousing aroused*
 1. *(v)* to wake someone.
-2. *(v)* to stir up a feeling. *Tarquin's strange behaviour aroused my curiosity.* **arousal** *(n)*
+2. *(v)* to stir up a feeling. *Tarquin's strange behaviour aroused my curiosity.* arousal *(n)*
 
 ---
 
 **arrange** *arranging arranged*
-1. *(v)* to make plans for something to happen. **arrangement** *(n)*
-2. *(v)* to arrange things so that they look attractive. **arrangement** *(n)*
-3. *(v)* to change a piece of music slightly, so that it can be played on different instruments. **arrangement** *(n)*
+1. *(v)* to make plans for something to happen. arrangement *(n)*
+2. *(v)* to place things so that they look attractive. arrangement *(n)*
+3. *(v)* to change a piece of music slightly, so that it can be played on different instruments. arrangement *(n)*
 4. *(n)* If someone has an **arranged marriage**, their parents have chosen a husband or wife for them.
 
 ---
 
 **arrest** *arresting arrested*
-1. *(v)* to take someone prisoner. **arrest** *(n)*
+1. *(v)* to take someone prisoner. arrest *(n)*
 2. *(v)* to stop something from developing or happening any more.
 
 ---
 
 **arrive** *arriving arrived*
-1. *(v)* to reach a place. *We arrived home early.* **arrival** *(n)*
+1. *(v)* to reach a place. *We arrived home early.* arrival *(n)*
 2. *(v)* to come. *At last, the great day arrived.*
 
 ---
 
-**arrogant** *(adj)* conceited and proud. **arrogance** *(n)*, **arrogantly** *(adv)*
+**arrogant** *(adj)* conceited and proud. arrogance *(n)*, arrogantly *(adv)*
 
 ---
 
@@ -145,7 +145,7 @@
 
 ---
 
-**artery** *arteries (n)* one of the tubes that carry blood from your heart to all the other parts of your body. See **circulation**.
+**artery** *arteries* *(n)* one of the tubes that carry blood from your heart to all the other parts of your body. arterial *(adj)*. See **circulation**.
 
 ---
 
