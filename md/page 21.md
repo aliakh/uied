@@ -56,6 +56,7 @@
 **armadillo** *(n)* a mammal covered by hard, bony plates. *The nine-banded armadillo shown here is found in North and South America.*
 
 ---
+
 **armaments** *(plural n)* weapons and other equipment used for fighting wars.
 
 ---
@@ -77,6 +78,7 @@
 **armoured vehicle** *(n)* a tank or other military vehicle with a strong metal covering. *An armoured vehicle is used for carrying troops.*
 
 ---
+
 **armpit** *(n)* the area under your arm where it joins your shoulder.
 
 ---
@@ -105,8 +107,6 @@
 **arrange** *arranging arranged*
 1. *(v)* to make plans for something to happen. **arrangement** *(n)*
 2. *(v)* to arrange things so that they look attractive. **arrangement** *(n)*
-
----
 3. *(v)* to change a piece of music slightly, so that it can be played on different instruments. **arrangement** *(n)*
 4. *(n)* If someone has an **arranged marriage**, their parents have chosen a husband or wife for them.
 
@@ -123,6 +123,7 @@
 2. *(v)* to come. *At last, the great day arrived.*
 
 ---
+
 **arrogant** *(adj)* conceited and proud. **arrogance** *(n)*, **arrogantly** *(adv)*
 
 ---
