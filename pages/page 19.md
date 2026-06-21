@@ -1,164 +1,71 @@
-**combine** *combining combined* *(v)* to join or mix things together.
+**apparent**
+1. *(adj)* obvious or clear. *Bill's guilt was apparent to us all.*
+2. *(adj)* seeming real or true. *Claudia's apparent confidence is really a sham.* **apparently** *(adv)*.
 
 ---
 
-**comfort** *comforting comforted*
-1. *(v)* to make someone feel less sad or worried.
-2. *(n)* a feeling of being relaxed and free from pain. **comfortable** *(adj)*
+**appeal** *appealing appealed*
+1. *(v)* to ask for something urgently.
+2. *(v)* to ask for a decision made by a court to be changed.
+3. *(v)* If something **appeals** to you, you like it or find it interesting.
 
 ---
 
-**command** *commanding commanded*
-1. *(v)* to order someone to do something.
-2. *(n)* an order. **commander** *(n)*
+**appear** *appearing appeared*
+1. *(v)* to come into sight. **appearance** *(n)*.
+2. *(v)* to seem. *Paul appears to be happy.* **appearance** *(n)*.
 
 ---
 
-**common** *commoner commonest*
-1. *(adj)* happening often, or found in large numbers.
-2. *(adj)* shared by two or more people or things. **commonly** *(adv)*
+**appendicitis** *(n)* If someone has **appendicitis**, their appendix is infected and very painful.
 
 ---
 
-**communicate** *communicating communicated* *(v)* to share information or feelings with others. **communication** *(n)*
+**appendix** *appendices* or *appendixes*
+1. *(n)* a small, closed tube leading from your bowel. *See* **digestion**.
+2. *(n)* extra information at the end of a book.
 
 ---
 
-**community** *communities* *(n)* a group of people who live in the same area or share the same interests.
+**appetite**
+1. *(n)* desire for food.
+2. *(n)* great enjoyment of something. *Sadji has a real appetite for work.*
 
 ---
 
-**compare** *comparing compared* *(v)* to look at two or more things to find how they are similar or different. **comparison** *(n)*
+**appetizing** or **appetising** *(adj)* Food that is appetizing looks and smells good to eat.
 
 ---
 
-**compete** *competing competed* *(v)* to take part in a race or contest. **competition** *(n)* **competitor** *(n)*
+**applaud** *applauding applauded* *(v)* to show that you like something, usually by clapping your hands. **applause** *(n)*.
 
 ---
 
-**complete** *completing completed*
-1. *(adj)* whole, with nothing missing.
-2. *(v)* to finish something. **completely** *(adv)*
+**apple** *(n)* a round, usually crispy, fruit. *See* **fruit**.
 
 ---
 
-**concern** *concerning concerned*
-1. *(n)* worry about something. *There is concern about pollution.*
-2. *(v)* to worry someone.
-3. *(v)* to be about something. *This matter concerns you.* **concerned** *(adj)*
+**appliance** *(n)* a machine designed to do a particular job. *Our kitchen is full of modern appliances.*
 
 ---
 
-**condition** *conditions*
-1. *(n)* the state that something or someone is in.
-2. *(n)* something that must happen before something else can happen.
+**applicant** *(n)* someone who has written formally, asking for something, like a job or a place on a course.
 
 ---
 
-**connect** *connecting connected* *(v)* to join two things together. **connection** *(n)*
+**application**
+1. *(n)* a written request for something, like a job. *A job application.*
+2. *(n)* a way of using something. *Our computer system has many different applications.*
 
 ---
 
-**consider** *considering considered* *(v)* to think carefully about something. **consideration** *(n)*
+**apply** *applies applying applied*
+1. *(v)* to ask for something in writing.
+2. *(v)* to be relevant. *These rules don't apply to us.*
+3. *(v)* If you **apply yourself** to something, you work hard at it.
 
 ---
 
-**construct** *constructing constructed* *(v)* to build or make something. **construction** *(n)*
-
----
-
-**contain** *containing contained* *(v)* to have something inside. **container** *(n)*
-
----
-
-**continue** *continuing continued* *(v)* to keep doing something without stopping. **continuous** *(adj)*
-
----
-
-**control** *controlling controlled*
-1. *(v)* to be in charge of something or someone.
-2. *(n)* the power to make decisions about something. **controller** *(n)*
-
----
-
-**cook** *cooking cooked*
-1. *(v)* to prepare food by heating it.
-2. *(n)* someone who prepares food. **cookery** *(n)*
-
----
-
-**copy** *copies copying copied*
-1. *(v)* to make something that looks the same as something else.
-2. *(n)* something made to look like something else.
-3. *(v)* to do the same as someone else.
-
----
-
-**correct** *correcting corrected*
-1. *(adj)* right and without any mistakes.
-2. *(v)* to fix a mistake. **correctly** *(adv)*
-
----
-
-**cost** *costing cost*
-1. *(n)* the amount of money you need to buy something.
-2. *(v)* to have a particular price. *How much does it cost?*
-
----
-
-**country** *countries*
-1. *(n)* a nation with its own government.
-2. *(n)* land away from towns and cities. **countryside** *(n)*
-
----
-
-**courage** *(n)* the ability to face danger or difficulty without being afraid. **courageous** *(adj)*
-
----
-
-**create** *creating created* *(v)* to make something new. **creation** *(n)* **creative** *(adj)* **creature** *(n)* a living animal.
-
----
-
-**crime** *crimes* *(n)* an action that is against the law. **criminal** *(n)* **criminal** *(adj)*
-
----
-
-**crop** *crops* *(n)* a plant grown in large quantities for food.
-
----
-
-**cross** *crosses crossing crossed*
-1. *(adj)* angry.
-2. *(v)* to go from one side to the other. *Cross the road carefully.*
-3. *(n)* a shape made by two lines crossing each other.
-
----
-
-**crowd** *crowds* *(n)* a large group of people gathered together. **crowded** *(adj)*
-
----
-
-**cruel** *(adj)* deliberately causing pain or suffering. **cruelly** *(adv)* **cruelty** *(n)*
-
----
-
-**culture** *cultures* *(n)* the customs, arts, and beliefs of a group of people. **cultural** *(adj)*
-
----
-
-**curious** *(adj)*
-1. eager to find out about things.
-2. strange or unusual. **curiously** *(adv)* **curiosity** *(n)*
-
----
-
-**current** *currents*
-1. *(n)* a flow of water, air, or electricity.
-2. *(adj)* happening or existing now. **currently** *(adv)*
-
----
-
-**custom** *customs* *(n)* a traditional way of behaving that is special to a particular group or place. **customary** *(adj)*
-
----
+**appoint** *appointing appointed*
+1. *(v)* to choose someone for a job.
+2. *(v)* to arrange something officially. *We've already appointed a date for the match.*
