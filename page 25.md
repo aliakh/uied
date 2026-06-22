@@ -66,3 +66,51 @@
 **Aztec** *(n)* a member of the Mexican Indian people, who had a great civilization before the conquest of Mexico in the 16th century. **Aztec** *(adj)*
 
 ---
+
+**babble** *babbling babbled*
+1. *(v)* to talk in an excited way, without making any sense.
+2. *(v)* to make sounds like a baby.
+
+---
+
+**baboon** *(n)* a large monkey that lives in Africa.
+
+---
+
+**baby** *babies (n)* a newly born or very young child or animal. **babyish** *(adj)*
+
+---
+
+**baby-sitter** *(n)* someone who is paid to stay in the house and look after children while their parents are out.
+
+---
+
+**bachelor** *(n)* a man who has never been married.
+
+---
+
+**back** *backing backed*
+1. *(n)* the rear part of your body between your neck and your bottom.
+2. *(n)* the opposite end or side from the front. **back** *(adj)*
+3. *(adv)* to where someone or something was before. *Ed came back.*
+4. *(v)* to support someone.
+5. **back down** *(v)* to admit that you were wrong.
+6. **back out** *(v)* to decide not to do something that you had agreed to do.
+
+---
+
+**backfire** *backfiring backfired*
+1. *(v)* If a car **backfires**, there is a small explosion inside its exhaust pipe.
+2. *(v)* If an action **backfires**, it does not work out as you planned it.
+
+---
+
+**background**
+1. *(n)* the part of a picture that is behind the main subject.
+2. *(n)* the facts or events that surround something and help to explain why it happened.
+
+---
+
+**backhand** *(n)* a stroke in tennis that you play with the back of your hand facing outwards and your arm across your body.
+
+---
