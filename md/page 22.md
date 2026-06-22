@@ -97,5 +97,77 @@
 
 **assemble** assembling assembled
 1. *(v)* to gather together in one place. *All the school assembled in the hall.*
+2. *(v)* to put all the parts of something together. *Follow the instructions to assemble this model.*
+
+---
+
+**assembly**
+1. *(n)* a meeting of lots of people.
+2. **assembly line** *(n)* a series of machines and workers in a factory that each do a job in turn.
+
+---
+
+**assent** assenting assented *(v)* to agree to something. **assent** *(n)*
+
+---
+
+**assert** asserting asserted *(v)* If you assert yourself, you behave in a strong, confident way so that people take notice of you.
+
+---
+
+**assertive** *(adj)* able to stand up for yourself and tell other people what you think or want. **assertiveness** *(n)*, **assertively** *(adv)*
+
+---
+
+**assess** assesses assessing assessed *(v)* to judge how good or bad something is. **assessment** *(n)*, **assessor** *(n)*
+
+---
+
+**asset** *(n)* something or someone who is helpful or useful. *Imran is a great asset to our team.*
+
+---
+
+**assignment** *(n)* a special job that is given to somebody. **assign** *(v)*
+
+---
+
+**assistance** *(n)* If someone gives you assistance, they do something to help you or to make things easier for you. **assist** *(v)*
+
+---
+
+**assistant** *(n)* a person who helps someone else to do a task or job.
+
+---
+
+**association**
+1. *(n)* an organization, club, or society.
+2. *(n)* a connection that you make in your mind between different things. *Our holiday house has many happy associations for me.* **associate** *(v)*
+
+---
+
+**assonance** *(n)* repeated use of the same vowel sound in words that are close together, for example, "How now brown cow?"
+
+---
+
+**assortment** *(n)* a mixture of different things. **assorted** *(adj)*
+
+---
+
+**assume** assuming assumed
+1. *(v)* to suppose that something is true, without checking it. *I assume that you're right.* **assumption** *(n)*
+2. *(v)* If you assume responsibility for something, you agree to look after it.
+3. An **assumed** name is a false name.
+
+---
+
+**assurance**
+1. *(n)* a firm promise.
+2. *(n)* confidence in yourself and in what you can do. *Self-assurance.*
+
+---
+
+**assure** assuring assured
+1. *(v)* to promise something, or say something positively. *Annie assured me of her support.*
+2. *(v)* If you assure yourself about something, you make certain about it.
 
 ---
