@@ -43,3 +43,66 @@
 **baize** *(n)* a felt-like material, used for covering card-tables, snooker tables, etc.
 
 ---
+
+**bake** *baking baked*
+1. *(v)* to cook food in an oven, especially bread or cakes. **baker** *(n)*. **bakery** *(n)*.
+2. *(v)* to heat something in order to make it hard. *Bake the clay in a kiln before glazing it.*
+
+---
+
+**balaclava** *(n)* a woolly hat that covers your head and neck, like a helmet.
+
+---
+
+**balance** *balancing balanced*
+1. *(n)* an instrument used for weighing things.
+2. *(v)* When two things **balance** in a pair of scales, they weigh the same and do not tip the scales either way.
+3. *(n)* Your **balance** is your ability to keep steady and not fall over.
+4. *(v)* If you **balance** something, you keep it steady and do not let it fall.
+5. *(n)* When you subtract an amount from another amount, what you have left is the **balance**.
+
+---
+
+**balcony**
+1. *(n)* a platform with railings on the outside of a building, usually on an upper level.
+2. *(n)* the upstairs seating in a theatre.
+
+---
+
+**bald** *(balder)* **baldest**
+1. *(adj)* Someone who is **bald** has very little or no hair on their head. **baldness** *(n)*. **balding** *(adj)*.
+2. *(adj)* A bald fact or statement is stated simply, without any attempt to make it more pleasant. **baldly** *(adv)*.
+
+---
+
+**bale out** *baling out baled out*
+1. *(v)* to jump out of an aircraft, using a parachute.
+2. *(v)* If you **bale someone out**, you help them out of a difficult situation.
+
+---
+
+**ball**
+1. *(n)* a round object, used in games.
+2. *(n)* something made into a round shape. *A ball of wool*
+3. *(n)* a very formal party where people dance.
+4. *(informal)* If you have a **ball**, you really enjoy yourself.
+
+---
+
+**ballad** *(n)* a song or a poem that tells a story.
+
+---
+
+**ballast**
+1. *(n)* heavy material, such as water or sand, that is carried by a ship to make it more stable.
+2. **ballast tank** *(n)* a large tank in a submarine that is filled with water to make the submarine sink, and with air to make it come to the surface.
+
+---
+
+**ball bearings** *(n)* small, metal balls used to help parts of machinery move more smoothly against each other.
+
+---
+
+**ballerina** *(n)* a leading woman ballet dancer.
+
+---
