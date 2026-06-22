@@ -68,3 +68,52 @@
 **ATB** *(n)* The initials ATB stand for all-terrain bicycle. ATBs have wide, tough tyres and many gears so they can be used on a range of surfaces.
 
 ---
+
+**atheist** *(ay-thee-ist) (n)* someone who does not believe that there is a God. **atheism** *(n)*
+
+---
+
+**athlete**
+1. *(n)* someone who takes part in sports such as running, jumping, and throwing.
+2. *(n)* someone who is very good at sports. **athletic** *(adj)*
+
+---
+
+**athletics** *(n)* competitive sports that involve running, jumping, or throwing. **athletic** *(adj)*. See **track and field**.
+
+---
+
+**atlas** *(n)* a book of maps.
+
+---
+
+**atmosphere** *(at-muss-fear)*
+1. *(n)* the mixture of gases that surround a planet.
+2. *(n)* the air in a particular place. *The atmosphere in some of our cities is very polluted.*
+3. *(n)* a mood or feeling created by a place or a work of art. *I didn't like the atmosphere in Uncle Merlin's house.*
+
+**atmospheric** *(adj)*
+
+---
+
+**atom** *(n)* the smallest part of a substance. Everything is made up of atoms.
+
+---
+
+**atomic**
+1. *(adj)* to do with atoms. *Atomic structure.*
+2. *(adj)* using the power created when atoms are split. *Atomic energy.*
+
+---
+
+**atone** *atoning atoned (v)* If you **atone** for something, you make up for it. *Kate atoned for her lateness by working extra hard.*
+
+---
+
+**atrocious** *(at-roh-shus) (adj)* disgusting, or terrible.
+
+---
+
+**atrocity** *atrocities (n)* a very wicked or cruel act, often involving killing.
+
+---
