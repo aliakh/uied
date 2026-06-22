@@ -34,3 +34,37 @@
 **astronaut** *(n)* someone who travels in space.
 
 ---
+
+**astronomical**
+1. *(adj)* to do with astronomy.
+2. *(adj)* very large. *An astronomical amount of money.*
+
+**astronomically** *(adv)*
+
+---
+
+**astronomy** *(n)* the study of stars, planets, and space. **astronomer** *(n)*
+
+---
+
+**astute** *(ass-tyoot) (adj)* If someone is **astute**, they understand situations and people clearly and quickly.
+
+---
+
+**asunder** *(adv) (old-fashioned)* in or into pieces. *The veil was torn asunder.*
+
+---
+
+**asylum** *(ass-eye-lum)*
+1. *(n)* protection given by a country to someone escaping from danger in their own country.
+2. *(n) (old-fashioned)* a hospital for people who are mentally ill.
+
+---
+
+**asymmetrical** *(adj)* A shape that is asymmetrical cannot be divided into two equal halves.
+
+---
+
+**ATB** *(n)* The initials ATB stand for all-terrain bicycle. ATBs have wide, tough tyres and many gears so they can be used on a range of surfaces.
+
+---
