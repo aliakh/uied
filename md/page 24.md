@@ -112,3 +112,57 @@
 **autistic** *(adj)* Someone who is autistic has a condition which prevents them from communicating normally or from forming proper relationships with other people.
 
 ---
+
+**autobiography** *autobiographies (n)* a book that tells the story of the writer's life. **autobiographical** *(adj)*
+
+---
+
+**autograph** *(n)* a famous person's signature.
+
+---
+
+**automatic**
+1. *(adj)* An **automatic** machine can perform some actions without anyone operating it. **automatically** *(adv)*
+2. *(adj)* An **automatic** action happens without your thinking about it. **automatically** *(adv)*
+
+---
+
+**automation** *(n)* the use of machines rather than people to do jobs, especially in factories. **automate** *(v)*
+
+---
+
+**automobile** *(US)* a type of passenger motor vehicle *(car, UK)*.
+
+---
+
+**autumn** *(n)* the season between summer and winter, when it gets colder and the leaves fall from the trees. **autumnal** *(adj)*
+
+---
+
+**available**
+1. *(adj)* ready to be used or bought. **availability** *(n)*
+2. *(adj)* not busy, and so free to talk to people. **availability** *(n)*
+
+---
+
+**avalanche** *(av-er-lansh) (n)* a large mass of snow and ice that suddenly moves down the side of a mountain.
+
+---
+
+**avenue** *(n)* a wide road in a town or city, often with trees on either side.
+
+---
+
+**average**
+1. *(n)* In maths, you find an **average** by adding a group of figures together and then dividing the total by the number of figures you have added. *The average of 2, 4, and 6 is 4.*
+2. *(n)* usual, or ordinary.
+
+---
+
+**aviary** *(n)* a large cage for birds.
+
+---
+
+**aviation** *(n)* the science of building and flying aircraft. **aviator** *(n)*
+
+---
