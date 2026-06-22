@@ -63,3 +63,52 @@
 **auburn** *(or burn) (n)* a reddish-brown colour. **auburn** *(adj)*
 
 ---
+
+**auction** *(n)* a sale where goods are sold to the person who offers the most money for them. **auctioneer** *(n)*
+
+---
+
+**audience**
+1. *(n)* the people who watch or listen to a performance, speech, or show.
+2. *(n)* a formal meeting with an important or powerful person.
+
+---
+
+**audio-visual** *(adj)* Audio-visual equipment uses sound and pictures, often to teach people something.
+
+---
+
+**audition** *(n)* a short performance by an actor, singer, etc. to see whether they are suitable for a part in a play, concert, etc.
+
+---
+
+**aunt** *(n)* the sister of your father or mother, or the wife of your uncle.
+
+---
+
+**au pair** *(oh-pair) (n)* a young person from another country who lives with a family and helps them, in order to learn a language.
+
+---
+
+**aural** *(or-al) (adj)* to do with listening. *My piano exam includes an aural test.*
+
+---
+
+**author** *(n)* the writer of a book, play, or poem. **authorship** *(n)*
+
+---
+
+**authority** *authorities*
+1. *(n)* the right to do something or to tell other people what to do. *The detectives have the authority to search our house.*
+2. *(n)* a group of people with power in a certain area. *A local authority.*
+3. *(n)* someone who knows a lot about a particular subject. *Sam is an authority on computers.*
+
+---
+
+**authorize** *or* **authorise** *authorizing authorized (v)* to give permission for something to happen. **authorization** *(n)*
+
+---
+
+**autistic** *(adj)* Someone who is autistic has a condition which prevents them from communicating normally or from forming proper relationships with other people.
+
+---
