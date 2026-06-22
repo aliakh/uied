@@ -106,3 +106,54 @@
 **ballerina** *(n)* a leading woman ballet dancer.
 
 ---
+
+**ballet** *(bal-ay)*
+1. *(n)* a style of dance with set movements.
+2. *(n)* a performance using dance and music, often to tell a story. *The picture shows three ballet movements.*
+
+---
+
+**ballistics** *(singular n)* the science and study of missiles that are fired from guns. **ballistic** *(adj)*.
+
+---
+
+**balloon**
+1. *(n)* a small bag made of thin rubber that is blown up and used as a decoration.
+2. See **hot-air balloon**.
+
+---
+
+**ballot**
+1. *(n)* a secret way of voting for something.
+2. **ballot box** *(n)* a box with a slit in the top into which votes are put.
+3. **ballot paper** *(n)* a special piece of paper used for marking a vote.
+
+---
+
+**ballpoint** *(n)* a pen with a tiny ball at its tip that lets ink flow as you write.
+
+---
+
+**balsa** *(n)* a very light wood, used for making models.
+
+---
+
+**bamboo** *(n)* a tropical plant with a hard, hollow stem, often used for making furniture.
+
+---
+
+**ban** *banning banned* *(v)* to forbid something. *Ball games are banned in this park.* **ban** *(n)*.
+
+---
+
+**banana** *(n)* a tropical fruit that is long, curved, and yellow.
+
+---
+
+**band** *banding banded*
+1. *(n)* a narrow ring of rubber, paper, or other material, that is put around something to hold it together.
+2. *(n)* a group of people who play music together.
+3. *(n)* a group of people who do something together. *A band of robbers*
+4. *(v)* When people **band together**, they join together in a group in order to do something.
+
+---
