@@ -114,3 +114,44 @@
 **backhand** *(n)* a stroke in tennis that you play with the back of your hand facing outwards and your arm across your body.
 
 ---
+
+**backpack**
+1. *(n)* a large bag that you carry on your back when you are walking or climbing.
+2. If you **go backpacking**, you go on a long walk or hike.
+
+---
+
+**backstroke** *(n)* a style of swimming in which you swim lying on your back.
+
+---
+
+**backwards**
+1. *(adv)* in the direction that your back is facing. *Joe stepped backwards.*
+2. *(adv)* in the opposite to the usual way. *Say the alphabet backwards.*
+
+---
+
+**bacon** *(n)* smoked or salted meat from the back or sides of a pig.
+
+---
+
+**bacteria** *(plural n)* microscopic living things which exist all around you and inside you. Many bacteria are useful, but some cause disease.
+
+---
+
+**bad** *worse worst*
+1. *(adj)* not good.
+2. *(adj)* serious. *A bad mistake.*
+3. *(adj)* not fit to eat. *The fish has gone bad.*
+
+---
+
+**badge** *(n)* a small sign with a picture or message on it that you pin to your clothes.
+
+---
+
+**badger** *badgering badgered*
+1. *(n)* a mammal with a grey body and a black and white head, that lives in a sett under the ground and comes out at night to feed.
+2. *(v)* to keep asking someone to do something. *Fran kept badgering me to let her come with us.*
+
+---
