@@ -62,3 +62,44 @@
 7. *(adj)* selfish, or mean. *A base trick.*
 
 ---
+
+**baseball** *(n)* an American game, played with a bat and ball and two teams of nine players. *The picture shows the batting area of a baseball field, beyond which is the centrefield, a large fielding area. Some baseball equipment is also shown.*
+
+---
+
+**basement** *(n)* an area or room in a building below ground level.
+
+---
+
+**bash** bashes bashing bashed
+1. *(v)* *(informal)* to hit something hard.
+2. *(informal)* If you **have a bash** at something, you try it.
+
+---
+
+**bashful** *(adj)* shy. **bashfully** *(adv)*
+
+---
+
+**basic** basics
+1. *(adj)* simple and straightforward.
+2. **basics** *(plural n)* the most important things to know about a subject.
+
+---
+
+**basin**
+1. *(n)* a large bowl used for washing, usually fixed to a wall.
+2. *(n)* a large bowl, often used for mixing food.
+3. *(n)* an area of land around a river from which water drains into the river.
+
+---
+
+**basis** *(n)* the idea or reason behind something. *The basis of a plan.*
+
+---
+
+**bask** basking basked
+1. *(v)* to lie or sit in the sunshine and enjoy it.
+2. *(v)* If you **bask in** someone's praise, admiration, etc., you enjoy it.
+
+---
