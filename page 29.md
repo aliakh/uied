@@ -28,3 +28,50 @@
 2. **baths** *(plural n)* a public swimming pool.
 
 ---
+
+**bathe** *bathes bathing bathed*
+1. *(v)* to go swimming in the sea or in a stream. **bather** *(n)*
+2. *(v)* if you **bathe** part of your body that is sore, you wash it gently in water or antiseptic.
+
+---
+
+**bathroom** *(n)* a room that contains a bath or a shower, and often a basin and toilet.
+
+---
+
+**batik** *(bat-eek)* *(n)* an Eastern method of printing designs on cloth. Parts of the cloth are covered with wax so that when it is put into the dye these parts are not coloured.
+
+---
+
+**baton**
+1. *(n)* a short, thin stick used by a conductor to beat time for an orchestra.
+2. *(n)* a short stick passed from one runner to another in a relay race.
+
+---
+
+**batsman** *batsmen* *(n)* the person who is batting in cricket.
+
+---
+
+**battalion** *(n)* a large number of soldiers.
+
+---
+
+**batten** *(n)* a light strip of wood, used to support or strengthen something.
+
+---
+
+**batter** *battering battered*
+1. *(v)* to hit someone or something many times. **battering** *(n)*
+2. *(v)* if someone **batters** down a door, they break through it by hitting it many times.
+3. *(n)* a mixture of milk, eggs, and flour that can be cooked to make pancakes or used to coat food which you fry.
+
+---
+
+**battering ram** *(n)* a heavy, wooden beam, sometimes protected by a hut on wheels, that is rammed against an enemy's walls or gates. *Battering rams were used in ancient times and in the Middle Ages.*
+
+---
+
+**battery** *batteries*
+1. *(n)* a group of machines or heavy guns that are all used together.
+2. *(n)* a container that stores chemicals which produce electrical power. Also see **car**
