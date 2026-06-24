@@ -29,3 +29,36 @@
 2. *(n)* something that prevents you from communicating properly with someone else. *A language barrier.*
 
 ---
+
+**barring** *(prep)* except for. *We'll be there, barring accidents.*
+
+---
+
+**barrister** *(n)* a lawyer who works in the higher law courts in Britain.
+
+---
+
+**barrow**
+1. *(n)* a small cart used for carrying things.
+2. *(n)* a mound of earth made to cover a grave in prehistoric times.
+
+---
+
+**bartender** *(n)* someone who serves behind the bar in a public house.
+
+---
+
+**barter** bartering bartered *(v)* to trade by exchanging food and other goods, rather than by using money. **barter** *(n)*
+
+---
+
+**base** basing based; baser basest
+1. *(n)* the lowest part of something, or the part that it stands on.
+2. *(v)* to use something as the starting point for something else. *I based my story on a real event.* **basis** *(n)*
+3. *(n)* the place from which a business, army, etc. is controlled. **base** *(v)*
+4. *(n)* in baseball or rounders, a **base** is one of the four points to which you have to run in order to score a run or rounder. *See* **baseball**
+5. *(n)* in chemistry, a **base** is a substance that will neutralize an acid. Bases react with acids to form salts.
+6. *(n)* in maths, a **base** is the starting point for a counting system. For example, ten is the base of the decimal system.
+7. *(adj)* selfish, or mean. *A base trick.*
+
+---
