@@ -126,5 +126,76 @@
 1. *(adj)* wearing no clothes.
 2. *(adj)* empty. *The cupboard was bare.*
 3. *(v)* to uncover or reveal something. *The dog bared its teeth. Verity bared her secret thoughts.*
+4. *(adj)* plain and simple. *Just give me the bare facts.*
+
+---
+
+**bareback** *(adv)* If you ride a horse bareback, you do not use a saddle.
+
+---
+
+**barefaced** *(adj)* open and undisguised. *Barefaced cheek.*
+
+---
+
+**barely** *(adv)* only just. *Tarquin was so scared, he could barely speak.*
+
+---
+
+**bargain** bargaining bargained
+1. *(n)* something that you buy for less than the usual price.
+2. *(v)* When you **bargain** with someone, you agree to do something if they will do something else in exchange. **bargain** *(n)*
+
+---
+
+**barge** barging barged
+1. *(n)* a long, flat-bottomed boat, used on canals.
+2. *(v)* If you **barge** into someone, you knock against them roughly or push them out of the way.
+
+---
+
+**baritone**
+1. *(n)* the second lowest singing voice for a man. **baritone** *(adj)*
+2. *(n)* a singer with a baritone voice.
+
+---
+
+**bark** barking barked
+1. *(v)* When a dog **barks**, it makes a loud sound in its throat. **bark** *(n)*
+2. *(n)* the hard covering on the outside of a tree.
+3. *(v)* to shout at someone gruffly. *"Attention!" barked the sergeant.*
+
+---
+
+**barley** *(n)* a common cereal plant. *See* **grain**
+
+---
+
+**bar mitzvah** *(n)* a celebration that takes place on a Jewish boy's 13th birthday, after which he can take part in his religion as an adult.
+
+---
+
+**barn** *(n)* a farm building where crops or animals are kept. *See* **thresh**
+
+---
+
+**barnacle** *(n)* a small shellfish that sticks itself firmly to the sides of boats, rocks, and other shellfish. *See* **scallop**
+
+---
+
+**barometer** *(n)* an instrument that measures changes in air pressure and shows how the weather is going to change. *In the simple barometer shown here, liquid rises in the spout for stormy weather and falls for fine weather.*
+
+---
+
+**baron** *(n)* a nobleman. In Britain, a baron is a male peer of the lowest rank.
+**baronial** *(adj)*
+
+---
+
+**baroness** baronesses *(n)* a noblewoman. In Britain, a baroness is a female peer of the lowest rank or the wife of a baron.
+
+---
+
+**barracks** barracks *(n)* the buildings where soldiers live.
 
 ---
