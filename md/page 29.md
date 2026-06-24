@@ -75,3 +75,83 @@
 **battery** *batteries*
 1. *(n)* a group of machines or heavy guns that are all used together.
 2. *(n)* a container that stores chemicals which produce electrical power. Also see **car**
+
+---
+
+**battery farming** *(n)* a system for breeding and raising poultry or cattle or for producing eggs, in which a large number of animals are kept in small cages or pens.
+
+---
+
+**battle**
+1. *(n)* a fight between two armies.
+2. *(v)* to fight with someone.
+
+---
+
+**battleship** *(n)* a warship armed with powerful guns.
+
+---
+
+**bawl** *bawling bawled*
+1. *(v)* to cry loudly like a baby.
+2. *(v)* to shout loudly in a harsh voice. *"Get off my roses!" bawled Mr Jones.*
+
+---
+
+**bay**
+1. *(n)* a part of the coast that curves inward.
+2. if you keep something or someone **at bay**, you fight them off. *Anna managed to keep her fears at bay.*
+3. **bay window** *(n)* a window that sticks out from the wall of a house. *See* **building**.
+
+---
+
+**bayonet** *(n)* a long knife that can be fixed to the end of a rifle.
+
+---
+
+**bazaar**
+1. *(n)* a street market, especially one held in Middle Eastern countries.
+2. *(n)* a sale held to raise money for charity.
+
+---
+
+**BC** the initials of the phrase "before Christ". BC is used to show that a date comes before the birth of Jesus Christ. *Julius Caesar died in 44BC.*
+
+---
+
+**beach** *beaches* *(n)* a strip of sand or pebbles where land meets water.
+
+---
+
+**beacon** *(n)* a light or fire used as a signal or warning.
+
+---
+
+**bead**
+1. *(n)* a small piece of glass, wood, or plastic with a hole through the middle that can be threaded on to a string.
+2. *(n)* a drop of liquid.
+
+---
+
+**beak** *(n)* the hard, horny part of a bird's mouth.
+
+---
+
+**beaker**
+1. *(n)* a tall drinking cup.
+2. *(n)* a piece of glass jar used in chemistry. *See* **apparatus**.
+
+---
+
+**beam** *beaming beamed*
+1. *(n)* a ray of light from a torch, car headlight, etc. **beam** *(v)*
+2. *(n)* a long, thick piece of wood, concrete, or metal, used to support the roof or floors of a building.
+3. *(v)* to smile widely. **beam** *(n)*
+
+---
+
+**bean**
+1. *(n)* **Beans** are large seeds that you can eat or that can be used to make a drink. *Baked beans. Coffee beans.*
+2. *(informal)* if you are **full of beans**, you are very lively.
+
+---
