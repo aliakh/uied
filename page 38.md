@@ -88,3 +88,48 @@
 2. *(n)* your mind or intelligence.
 
 ---
+
+**brainstorm** *brainstorming brainstormed*
+1. *(v)* If people **brainstorm**, they get together to share ideas on a topic or to solve a problem.
+2. *(n)* a sudden idea.
+
+---
+
+**brainwash** *brainwashes brainwashing brainwashed (v)* to make someone accept and believe something by saying it to them over and over again. **brainwashing** *(n)*.
+
+---
+
+**brainwave** *(n)* a sudden good idea.
+
+---
+
+**brainy** *brainier brainiest (adj) (informal)* clever, or intelligent.
+
+---
+
+**brake** *braking braked*
+1. *(n)* You use **brakes** to slow down or stop a vehicle. The brakes press against a wheel and stop it turning.
+2. *(v)* to slow down or stop by using brakes.
+
+---
+
+**bramble** *(n)* a thorny bush that blackberries grow on.
+
+---
+
+**branch** *branches branching branched*
+1. *(n)* a part of a tree that grows out of its trunk like an arm.
+2. *(v)* When a road, river, etc. **branches**, it splits into two parts that go in different directions. **branch** *(n)*.
+3. *(n)* A **branch** of a company or organization is one of its shops, offices, etc. in a particular area.
+
+---
+
+**brand** *branding branded*
+1. *(n)* a particular make of a product. *A brand of toothpaste.*
+2. *(v)* If someone **brands** an animal, they burn a mark on to its skin to show that the animal belongs to them. **brand** *(n)*.
+
+---
+
+**brandy** *(n)* a strong alcoholic drink made from wine.
+
+---
