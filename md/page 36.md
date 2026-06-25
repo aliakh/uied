@@ -86,3 +86,32 @@
 3. *(v)* to run away suddenly.
 
 ---
+
+**bomb** *bombing bombed*
+1. *(n)* a container filled with explosives, used in war or to blow up buildings, vehicles, etc.
+2. *(v)* to attack a place with bombs.
+
+---
+
+**bombard** *bombarding bombarded*
+1. *(v)* to attack a place with heavy gunfire. **bombardment** *(n)*.
+2. *(v)* If you **bombard** someone with questions, you ask them lots of questions in a short time.
+
+---
+
+**bombshell**
+1. *(n)* a bomb.
+2. *(n)* something which makes you shocked and surprised.
+
+---
+
+**bond** *bonding bonded*
+1. *(n)* a close friendship or connection with someone. *A special bond developed between the boys.*
+2. *(v)* When two things **bond**, they stick together. **bond** *(n)*.
+3. **bonds** *(plural n)* ropes, chains, etc. used to tie someone up.
+
+---
+
+**bone** *(n)* one of the hard, white parts that make up the skeleton of a person or an animal.
+
+---
