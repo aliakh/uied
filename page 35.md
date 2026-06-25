@@ -115,3 +115,60 @@
 **blunderbuss** *blunderbusses (n)* an old-fashioned gun with a wide-mouthed barrel that fires several lead balls at once. *When the trigger of a blunderbuss is released, the flint strikes against the frizzen, making the gunpowder explode and shoot the lead balls out of the barrel.*
 
 ---
+
+**blunt** *blunter bluntest*
+1. *(adj)* not sharp.
+2. *(adj)* direct and straightforward in what you say. **bluntly** *(adv)*.
+
+---
+
+**blur** *blurring blurred*
+1. *(v)* to make something smeared and unclear.
+2. *(n)* a shape that is unclear because it has no outline or is moving too fast. **blurred** *(adj)*.
+
+---
+
+**blurb** *(n)* writing on or about a product which aims to get people interested in it.
+
+---
+
+**blurt** *blurting blurted (v)* If you **blurt** something out, you say it suddenly, without thinking.
+
+---
+
+**blush** *blushes blushing blushed (v)* When you **blush**, your face turns red because you are embarrassed or ashamed. **blush** *(n)*.
+
+---
+
+**bluster** *blustering blustered*
+1. *(v)* to blow in gusts. *The wind blustered round the chimney pots.* **blustery** *(adj)*.
+2. *(v)* to act or speak in an aggressive and over-confident way.
+
+---
+
+**boar**
+1. *(n)* a male pig.
+2. *(n)* a type of wild pig.
+
+---
+
+**board** *boarding boarded*
+1. *(n)* a flat piece of wood or stiff card. *A chess board.*
+2. *(v)* to get on to a train, an aeroplane, or a ship.
+3. *(n)* The **board** of a company is the group of people who manage it.
+
+---
+
+**boarder** *(n)* a student who lives at school during the term.
+
+---
+
+**boarding school** *(n)* a school which students live in during the term.
+
+---
+
+**boast** *boasting boasted*
+1. *(v)* to talk proudly about what you can do or what you own, in order to impress people. **boastful** *(adj)*. **boastfully** *(adv)*.
+2. *(v)* If a place **boasts** something good, it possesses it. *Paris boasts many fine restaurants.*
+
+---
