@@ -33,3 +33,48 @@
 2. *(v)* If you **beaver** away at something, you work very hard at it.
 
 ---
+
+**because** *(conj)* for the reason that. *I came because I wanted to see you.*
+
+---
+
+**beckon** *beckoning beckoned*
+*(v)* to make a sign to someone, asking them to come. *Jack beckoned us to follow him.*
+
+---
+
+**become** *becoming became*
+*(v)* to start to be. *When did you become suspicious?*
+
+---
+
+**bed**
+1. *(n)* a piece of furniture that you sleep on.
+2. *(n)* a place in a garden where flowers are planted.
+3. *(n)* the bottom of an ocean or river.
+
+---
+
+**bedclothes** *(n)* sheets, duvets, blankets, etc.
+
+---
+
+**bedridden** *(adj)* If you are **bedridden**, you are so ill that you cannot get out of bed.
+
+---
+
+**bedroom** *(n)* a room used for sleeping.
+
+---
+
+**bedsitter** *(n)* a rented room that someone lives and sleeps in.
+
+---
+
+**bee** *(n)* a flying insect with yellow and black stripes that makes honey. *A bee lets other bees know where food is by performing a "dance", in which it waggles its abdomen a certain number of times.* Also see **hive**, **honeycomb**, **insect**.
+
+---
+
+**beech** *beeches (n)* a tree with a smooth, grey bark and leaves that spread outwards.
+
+---
