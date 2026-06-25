@@ -71,3 +71,75 @@
 5 **break out** *(v)* to begin suddenly. *Fighting broke out on the streets.*
 
 ---
+
+**break dance** *(n)* a very energetic and acrobatic form of dance.
+
+---
+
+**breakdown**
+1 *(n)* If you have a **breakdown** while you are travelling, your car stops moving because its engine has stopped working.
+2 *(n)* If someone has a **breakdown**, they are so worried or depressed about something that they become ill.
+
+---
+
+**breaker** *(n)* a big sea wave.
+
+---
+
+**breakfast** *(n)* the first meal of the day.
+
+---
+
+**breakthrough** *(n)* an important step towards achieving something.
+
+---
+
+**breakwater**
+1 *(n)* a wall built in the sea to protect a harbour from the force of the waves.
+2 *(n)* a barrier built on a beach to reduce the force of the waves.
+
+---
+
+**breast**
+1 *(n)* A woman's **breasts** are the two round fleshy parts on her chest that can produce milk to feed a baby.
+2 *(n) (old-fashioned)* a man's or a woman's chest.
+
+---
+
+**breaststroke** *(n)* a style of swimming on your front in which you move your arms forwards and out from your chest and kick your legs like a frog.
+
+---
+
+**breath**
+1 *(n)* the air that you take into your lungs and breathe out again.
+2 If you are **out of breath**, you have difficulty breathing.
+3 When you say something under your breath, you say it very quietly.
+
+---
+
+**breathalyze** or **breathalyse** *breathalyzing breathalyzed* When drivers are **breathalyzed**, they have to blow into a special bag, called a breathalyzer, which shows whether they have drunk too much alcohol to drive safely.
+
+---
+
+**breathe** *breathing breathed (v)* to take air in and out of your lungs.
+
+---
+
+**breather** *(n)* a short rest.
+
+---
+
+**breathtaking** *(adj)* very beautiful or impressive. *The view from the cliff was breathtaking.* **breathtakingly** *(adv).*
+
+---
+
+**breed** *breeding bred*
+1 *(v)* to keep animals or plants so that you can produce more of them and control their quality. **breeder** *(n).*
+2 *(v)* When animals **breed**, they mate and produce babies.
+3 *(n)* a particular type of animal. *A popular breed of dog.*
+
+---
+
+**breeze** *(n)* a gentle wind. **breezy** *(adj).*
+
+---
