@@ -65,3 +65,7 @@
 **biplane** *(n)* an aeroplane with two sets of wings, one above the other.
 
 ---
+
+**bird** *(n)* a two-legged creature with wings, feathers, and a beak. All birds lay eggs, and most birds can fly. *Birds can be grouped according to their characteristics and behaviour into 23 orders, or types, and an example of each order is shown below. The picture of an orange chat on the right shows the main parts of a bird's body.*
+
+---
