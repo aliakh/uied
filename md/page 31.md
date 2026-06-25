@@ -123,3 +123,65 @@
 2. If you are beside yourself, you are overcome with emotion. *Augustus is beside himself with rage.*
 
 ---
+
+**besides**
+1. *(prep)* as well as, or apart from. *Who went to the match besides Jim?*
+2. *(adv)* also, or in addition to this. *I hate boats and, besides, I can't swim.*
+
+---
+
+**besiege** *besieging besieged* *(v)* to surround a place in order to make it surrender. *Enemy troops are besieging the castle.*
+
+---
+
+**best**
+1. *(adj)* better than everything else.
+2. When you do your best, you try as hard as you can to do something.
+3. **best man** *(n)* the friend of the bridegroom who helps him at his wedding.
+
+---
+
+**bet** *betting bet*
+1. *(v)* to risk a sum of money on the result of something, such as a horse race. If you guess the result correctly, you win some money; if not, you lose money. betting *(n)*.
+2. *(v)* If you bet someone that they cannot do something, you dare them to do it. *I bet you can't climb that tree!*
+3. *(v) (informal)* If you bet that someone does something, you predict that they will do it. *I bet Mona trips over that cat.*
+
+---
+
+**betray** *betraying betrayed*
+1. *(v)* If you betray someone, you deliberately let them down or do something to hurt them. betrayal *(n)*.
+2. *(v)* If you betray your feelings, you are not able to keep them hidden.
+
+---
+
+**better**
+1. *(adj)* more suitable, or higher in quality.
+2. *(adj)* no longer ill or hurting.
+3. **better off** *(adj)* richer.
+
+---
+
+**between**
+1. *(prep)* If something is between two things, it has them on either side of it. *Dan stood between two trees.*
+2. *(prep)* from one to the other. *We threw the ball between us.*
+3. *(prep)* somewhere within two limits. *Nadya left between three and four o'clock.*
+
+---
+
+**beverage** *(n)* a drink.
+
+---
+
+**beware** If a person or sign tells you to beware of something, they warn you to look out for something dangerous or harmful.
+
+---
+
+**bewilder** *bewildering bewildered* *(v)* to confuse or muddle someone. bewilderment *(n)*. bewildered *(adj)*.
+
+---
+
+**beyond**
+1. *(prep)* on the far side of something. *We couldn't see beyond the bushes.*
+2. *(prep)* If something is beyond you, you cannot understand it.
+
+---
