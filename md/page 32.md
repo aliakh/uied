@@ -30,3 +30,25 @@
 2. *(n)* a plant that lives for two years.
 
 ---
+
+**big** *bigger biggest (adj)* large, or important.
+
+---
+
+**bigot** *(n)* someone who has a strong and unreasonable dislike of certain other people, especially people of a different race, nationality, or religion. **bigotry** *(n)*. **bigoted** *(adj)*.
+
+---
+
+**bike** *biking biked*
+1. *(n)* a bicycle, or a motorcycle.
+2. *(v)* to ride a bicycle or motorcycle. **biker** *(n)*.
+
+---
+
+**bikini** *(n)* a two-piece swimming costume worn by women and girls.
+
+---
+
+**bile** *(n)* a greenish-coloured liquid that is made by the liver and which helps to digest food.
+
+---
