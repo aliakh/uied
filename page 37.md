@@ -114,3 +114,73 @@
 **borstal** *(n) (old-fashioned)* a prison school for young people aged between 16 and 21. In Britain, borstals are now called detention centres or youth custody centres.
 
 ---
+
+**bosom**
+1. *(n)* a woman's breasts.
+2. *(n) (old-fashioned)* a man's or a woman's chest.
+
+---
+
+**boss** *bosses bossing bossed*
+1. *(n)* someone in charge of a company or someone who people work for.
+2. **boss about** *(v)* to keep telling somebody what to do.
+
+---
+
+**bossy** *bossier bossiest (adj)* A **bossy** person likes telling other people what to do. **bossiness** *(n)*.
+
+---
+
+**botany** *(singular n)* the study of plants. **botanist** *(n)*. **botanical** *(adj)*.
+
+---
+
+**bother** *bothering bothered*
+1. *(v)* If something **bothers** you, it makes you feel uncomfortable.
+2. *(v)* to interrupt someone who is busy. *Bobo keeps bothering me.*
+3. *(v)* to make an effort to do something. *At least Kitty bothered to come to the meeting.*
+
+---
+
+**bottle** *bottling bottled*
+1. *(n)* a glass or plastic container for liquids.
+2. *(v)* to put things into bottles.
+3. If you **bottle up** your feelings, you keep them to yourself.
+4. *(n) (slang)* courage, or spirit.
+
+---
+
+**bottleneck** *(n)* a narrow part of a road that causes traffic jams.
+
+---
+
+**bottom**
+1. *(n)* the lowest part of something. *The bottom of the sea.* **bottom** *(adj)*.
+2. *(n)* the part of your body that you sit on.
+
+---
+
+**bough** *(rhymes with now) (n)* a thick branch on a tree.
+
+---
+
+**boulder** *(n)* a large rock.
+
+---
+
+**bounce** *bouncing bounced*
+1. *(v)* to spring back after hitting something. **bounce** *(n)*. **bouncy** *(adj)*.
+2. *(n)* If someone has lots of **bounce**, they are very cheerful. **bouncy** *(adj)*.
+
+---
+
+**bound** *bounding bounded*
+1. *(v)* to move forward quickly with leaps and jumps. **bound** *(n)*.
+2. If something is **bound to** happen, it will definitely take place.
+3. If a place is **out of bounds**, you are not allowed to go there.
+
+---
+
+**boundary** *boundaries (n)* the line that separates one area from another.
+
+---
