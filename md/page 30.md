@@ -78,3 +78,60 @@
 **beech** *beeches (n)* a tree with a smooth, grey bark and leaves that spread outwards.
 
 ---
+
+**beef** *(n)* the meat from a cow, a bull, or an ox.
+
+---
+
+**beefy** *beefier beefiest (adj) (informal)* big and muscular.
+
+---
+
+**beehive** *(n)* a box for keeping bees so that their honey can be collected. See **hive**.
+
+---
+
+**beer** *(n)* an alcoholic drink made from malt, barley, and hops.
+
+---
+
+**beetle** *(n)* a flying insect with hard wing covers. *The goliath beetle weighs as much as a sparrow.*
+
+---
+
+**beetroot** *(n)* a purplish-red root vegetable. See **vegetable**.
+
+---
+
+**before**
+1. *(prep)* sooner or earlier than. *The time before last.*
+2. *(adv)* earlier. *I've been here before.*
+
+---
+
+**beg** *begging begged*
+1. *(v)* to ask someone in the street for help, especially for money or food. **beggar** *(n)*
+2. *(v)* to plead with someone to do something. *Emily begged Tom to go to her party.*
+
+---
+
+**begin** *beginning began begun (v)* to start. **beginner** *(n)*. **beginning** *(n)*
+
+---
+
+**behalf** if you do something on **behalf** of someone else, you do it for them, or in their place. *On behalf of my family, I'd like to thank you all.*
+
+---
+
+**behave** *behaving behaved*
+1. *(v)* to do and say things in a particular way. *Matthew behaved very strangely.* **behaviour** *(n)*
+2. *(v)* to act properly, and avoid being noisy or causing trouble. *I wish you would behave yourself!*
+
+---
+
+**behind**
+1. *(prep)* on the other side of, or towards the back of something. *Look behind the curtain!*
+2. *(prep)* further back, or in a lower position. *Joshua finished the race behind me.*
+3. *(adv)* not making good progress. *I'm behind with my work.*
+
+---
