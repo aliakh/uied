@@ -58,5 +58,60 @@
 
 **blot** *blotting blotted*
 1. *(n)* a stain caused by spilled ink or paint.
+2. *(v)* to dry ink on a page using a piece of soft paper.
+
+---
+
+**blotch** *blotches (n)* an area of reddened skin, or a stain. **blotchy** *(adj)*.
+
+---
+
+**blouse** *(n)* a piece of clothing, like a loose shirt, worn by women and girls.
+
+---
+
+**blow** *blowing blew blown*
+1. *(v)* to make air come out of your mouth.
+2. *(v)* to move in the wind. *The leaves were blowing around.*
+3. *(n)* a punch or hit on the body.
+4. *(n)* a disappointment.
+5. **blow up** *(v)* to destroy something with an explosion.
+
+---
+
+**blubber** *blubbering blubbered*
+1. *(n)* the fat under the skin of a whale or seal.
+2. *(v)* to cry noisily.
+
+---
+
+**blue** *bluer bluest*
+1. *(n)* the colour of the sky on a sunny day. **blue** *(adj)*.
+2. *(adj)* sad and depressed.
+3. **out of the blue** suddenly.
+
+---
+
+**blueprint** *(n)* a detailed plan for a project or an idea.
+
+---
+
+**blues** *(singular n)* a type of slow, sad, jazz music, first sung by black Americans.
+
+---
+
+**bluff** *bluffing bluffed*
+1. *(v)* to pretend to be in a stronger position than you really are, or to know more about something than you really do. *Nat says he's going to win, but I think he's bluffing.* **bluff** *(n)*.
+2. If you **call someone's bluff**, you challenge them to do what they say they can do, because you think that they are bluffing.
+
+---
+
+**blunder** *blundering blundered*
+1. *(n)* a stupid mistake. **blunder** *(v)*.
+2. *(v)* to move in an awkward and clumsy way, usually because you cannot see where you are going.
+
+---
+
+**blunderbuss** *blunderbusses (n)* an old-fashioned gun with a wide-mouthed barrel that fires several lead balls at once. *When the trigger of a blunderbuss is released, the flint strikes against the frizzen, making the gunpowder explode and shoot the lead balls out of the barrel.*
 
 ---
