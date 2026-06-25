@@ -54,3 +54,72 @@
 5. *(n)* an area, or a strip. *Commuter belt. A belt of rain.*
 
 ---
+
+**bench** *benches*
+1. *(n)* a long, narrow seat for several people, usually made of wood.
+2. *(n)* a work table in a workshop or laboratory.
+3. *(n)* The bench is the word used for a group of judges or magistrates in Britain.
+
+---
+
+**bend** *bending bent*
+1. *(v)* If you bend, bend down, or bend over, you lean forward from your waist.
+2. *(v)* If something bends, it changes direction by turning to one side. *The road bends to the left.* bend *(n)*.
+3. *(v)* to change the shape of something so that it is no longer straight.
+
+---
+
+**beneath**
+1. *(prep)* underneath. *We hid beneath the bedclothes.*
+2. *(prep)* lower than, or not worthy. *It's beneath my dignity to talk to her.*
+
+---
+
+**beneficial** *(adj)* Something that is beneficial is good for you.
+
+---
+
+**benefit** *benefiting benefited*
+1. *(v)* If you benefit from something, you gain an advantage from it or are helped by it. *We really benefited from our holiday.* benefit *(n)*.
+2. *(n)* money paid by the government to people who need it, such as people who are poor, ill, disabled, or unemployed.
+
+---
+
+**Bengali** *(ben-gor-lee)* *(n)* a language spoken in Bangladesh and the Indian state of West Bengal.
+
+---
+
+**benign** *(adj)* harmless. *The tests showed that the lump was benign.*
+
+---
+
+**bent**
+1. *(adj)* crooked, or curved.
+2. *(adj) (slang)* dishonest.
+
+---
+
+**bequeath** *bequeathing bequeathed* *(v)* to leave something to somebody in a will. bequest *(n)*.
+
+---
+
+**bereaved** *(adj)* A person is bereaved if a friend or relative of theirs has died. bereavement *(n)*.
+
+---
+
+**berry** *berries* *(n)* a small, often brightly coloured fruit, found on bushes or trees.
+
+---
+
+**berth** *berthing berthed*
+1. *(n)* a bed in a ship, train, or caravan.
+2. *(n)* a place in a harbour where a boat is tied up.
+3. *(v)* When a boat berths, it comes into harbour and is tied up.
+
+---
+
+**beside**
+1. *(prep)* next to.
+2. If you are beside yourself, you are overcome with emotion. *Augustus is beside himself with rage.*
+
+---
