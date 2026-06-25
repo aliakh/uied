@@ -47,3 +47,44 @@
 **boyfriend** *(n)* the man or boy with whom a woman or girl is having a romantic relationship.
 
 ---
+
+**bra** *(n)* a piece of underwear that supports a woman's breasts. Bra is short for brassière.
+
+---
+
+**brace** *bracing braced*
+1. *(n)* an object that supports another object or holds it in place. **brace** *(v)*.
+2. *(n)* a wire device worn inside your mouth to straighten your teeth.
+3. **braces** *(plural n)* two elastic straps worn over the shoulders to hold up a pair of trousers.
+4. *(v)* If you **brace** yourself, you prepare yourself for a shock or for the force of something hitting you.
+
+---
+
+**bracelet** *(n)* a band worn around the wrist as a piece of jewellery.
+
+---
+
+**bracket**
+1. *(n)* a support, made of metal or wood, used to hold up a shelf or cupboard.
+2. *(plural n)* **Brackets** are the pair of curved lines that are used to separate some words from the main writing. **bracket** *(v)*.
+3. *(n)* a grouping. *This game is intended for your age bracket and is in my price bracket.*
+
+---
+
+**brag** *bragging bragged (v)* to talk in a boastful way about how good you are at something.
+
+---
+
+**braid** *(n) (US)* a piece of hair that has been divided into three and twisted together (plait, UK).
+
+---
+
+**Braille** *(brayl) (n)* a system of printing for blind people. Braille uses raised dots that are read by feeling with the fingertips. *This picture shows what the word "Braille" looks like when it is printed in Braille.*
+
+---
+
+**brain**
+1. *(n)* the organ inside your head that controls your body and allows you to think and have feelings.
+2. *(n)* your mind or intelligence.
+
+---
