@@ -133,3 +133,40 @@
 **buffalo** *buffaloes* *(n)* a type of ox with heavy horns.
 
 ---
+
+**buffer** *(n)* something that softens a blow, especially the springs fixed to the front and back of a railway carriage. See **steam locomotive**.
+
+---
+
+**buffet** *buffeting buffeted*
+1. *(buff-et)* *(v)* to strike and shake something or someone. *The wind buffeted the trees.*
+2. *(boo-fay)* *(n)* a meal in which many cold dishes are laid on a table and people serve themselves.
+3. *(boo-fay)* *(n)* a snack bar, usually at a railway station.
+
+---
+
+**bug** *bugging bugged*
+1. *(n)* an insect.
+2. *(n)* (informal) a minor illness caused by germs. *A stomach bug.*
+3. *(n)* (informal) an error in a computer program or system that prevents it from working properly.
+4. *(adj)* (informal) if a room is **bugged**, someone has hidden microphones there so that they can listen to what people are saying. **bug** *(n)*
+5. *(v)* (informal) if someone or something **bugs** you, they annoy you.
+
+---
+
+**buggy** *buggies*
+1. *(n)* a chair on wheels, in which you push young children.
+2. *(n)* (old-fashioned) a light, two-wheeled carriage, pulled by a horse. *This buggy dates from the 1800s and has seats for three passengers.*
+
+---
+
+**bugle** *(n)* a musical instrument like a small trumpet, often used in the army to send signals to the troops. *The picture shows a 19th-century British army bugle.*
+
+---
+
+**build** *building built*
+1. *(v)* to make something by putting different parts together.
+2. *(n)* the size and shape of a person's body. *Nick has quite a large build.*
+3. **build up** *(v)* to increase or make stronger. *The traffic has built up. You must build yourself up for the race.*
+
+---
