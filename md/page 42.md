@@ -37,3 +37,23 @@
 **bulldozer** *(n)* a powerful tractor with a wide blade at the front, used for moving earth and rocks.
 
 ---
+
+**bullet** *(n)* a small, pointed metal object fired from a gun.
+
+---
+
+**bulletin** *(n)* a short news report on television or radio.
+
+---
+
+**bulletproof** *(adj)* Something that is **bulletproof** is made to protect people from bullets. *Bulletproof glass.*
+
+---
+
+**bullfight** *(n)* a public entertainment in which men fight against bulls.
+
+---
+
+**bullion** *(n)* bars of gold or silver.
+
+---
