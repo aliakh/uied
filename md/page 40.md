@@ -116,3 +116,69 @@ See **guitar**, **strings**.
 2. **bristles** *(plural n)* the short, stiff hairs that start to grow on a man's chin if he does not shave. **bristly** *(adj)*
 
 ---
+
+**brittle** *(adj)* easily snapped or broken. *Dried flowers can be very brittle.*
+
+---
+
+**broach** *broaches broaching broached (v)* when you **broach** a subject with someone, you start to talk or ask about it.
+
+---
+
+**broad** *broader broadest*
+1. *(adj)* wide. **broaden** *(v)*
+2. *(adj)* covering the most important points, but not the details. *Give me a broad outline of the story.* **broadly** *(adv)*
+
+---
+
+**broadcast** *broadcasting broadcasted*
+1. *(v)* to send out a programme on television or radio. **broadcaster** *(n)*. **broadcasting** *(n)*
+2. *(n)* a television or radio programme.
+
+---
+
+**broccoli** *(n)* a green vegetable with rounded heads on stalks. See **vegetable**.
+
+---
+
+**brochure** *(broh-shur) (n)* a booklet, usually with pictures, that gives information about a product or service. *A holiday brochure.*
+
+---
+
+**brogue** *(brohg)*
+1. *(n)* a strong accent, especially an Irish one.
+2. **brogues** *(plural n)* strong walking shoes.
+
+---
+
+**broiler** *(n) (US)* the part of a cooker that heats food from above (grill, UK).
+
+---
+
+**broke** *(adj) (informal)* if you are **broke**, you have no money.
+
+---
+
+**broken home** *(n)* A broken home is one where the family is no longer together because the parents have divorced.
+
+---
+
+**bronchitis** *(bron-ky-tiss) (n)* an illness of the throat and lungs that makes you cough a lot.
+
+---
+
+**bronze**
+1. *(n)* a hard, reddish-brown metal that is a mixture of copper and tin.
+2. *(n)* a reddish-brown colour. **bronze** *(adj)*
+
+---
+
+**brooch** *(rhymes with coach) brooches (n)* a piece of jewellery that can be pinned to your clothes. *The Tara brooch, shown here, was made in 10th-century Ireland.*
+
+---
+
+**brood** *brooding brooded*
+1. *(n)* a family of young birds.
+2. *(v)* to keep worrying or thinking about something. *Don't brood about your problems.*
+
+---
