@@ -15,3 +15,25 @@
 **bulge** bulging bulged *(v)* to swell out like a lump. *Sergei's bag bulged with presents.* **bulge** *(n)*
 
 ---
+
+**bulk**
+1. *(n)* The **bulk** of something is the main part of it.
+2. When you buy in **bulk**, you buy in large quantities.
+
+---
+
+**bulky** bulkier bulkiest
+1. *(adj)* large and difficult to handle.
+2. *(adj)* very filling. *Bulky food.*
+
+---
+
+**bull**
+1. *(n)* the male of the cattle family.
+2. *(n)* a male elephant, seal, or whale.
+
+---
+
+**bulldozer** *(n)* a powerful tractor with a wide blade at the front, used for moving earth and rocks.
+
+---
