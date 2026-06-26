@@ -98,3 +98,47 @@
 2 *(v)* If you are **caked** in something, you are covered in it.
 
 ---
+
+**calamity** calamities *(n)* a terrible disaster. **calamitous** *(adj)*.
+
+---
+
+**calcium** *(n)* a soft, white element found in teeth and bones.
+
+---
+
+**calculate** calculating calculated *(v)* to work something out, especially a sum. *Andy calculated that it would take two hours to get there by car.* **calculation** *(n)*.
+
+---
+
+**calculating** *(adj)* A calculating person makes clever plans so that things work out the way they want.
+
+---
+
+**calculator** *(n)* a small electronic machine, used for working out sums.
+
+---
+
+**calendar** *(n)* a chart showing all the days in a year.
+
+---
+
+**calf** calves
+1 *(n)* a young cow, seal, elephant, giraffe, or whale.
+2 *(n)* the fleshy part at the back of your leg, below your knee.
+
+---
+
+**call** calling called
+1 *(v)* to shout something out, especially someone's name.
+2 *(v)* to give someone or something a name.
+3 *(v)* to telephone someone. **call** *(n)*.
+4 *(v)* If you **call on** someone, you visit them. **caller** *(n)*.
+5 **call off** *(v)* If you **call something off**, you cancel it.
+6 **call collect** *(v) (US)* to reverse telephone charges from someone who is making the call to the person who is receiving it.
+
+---
+
+**calligraphy** *(n)* the art of beautiful handwriting.
+
+---
