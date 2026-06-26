@@ -142,3 +142,73 @@
 2 *(v)* to hide something in the ground or under a pile of things.
 
 ---
+
+**bus** buses *(n)* a large vehicle, used for carrying passengers.
+
+---
+
+**bush** bushes
+1 *(n)* a large plant with many branches.
+2 **The bush** *(n)* the wild areas of Australia and Africa. **bushman** *(n)*.
+
+---
+
+**bushy** bushier bushiest *(adj)* growing thickly. *Bushy eyebrows.*
+
+---
+
+**business** businesses
+1 *(n)* the type of work that someone does. *Hank's in the music business.*
+2 *(n)* the buying and selling of goods and services. *Our company does a lot of business with Japan.*
+3 *(n)* a company or shop that makes or sells things or provides a service.
+4 If something is **none of your business**, it is nothing to do with you.
+
+---
+
+**businesslike** *(adj)* efficient and practical.
+
+---
+
+**busker** *(n)* someone who sings or plays music in the street, in order to earn money. **busking** *(n)*.
+
+---
+
+**bust** busting busted or bust
+1 *(n)* a woman's breasts. **busty** *(adj)*.
+2 *(n)* a statue of a person's head and shoulders. *This marble bust is of the Ancient Greek scientist, Galen.*
+3 *(v) (informal)* to break something. **bust** *(adj)*.
+
+---
+
+**bustle** bustling bustled *(v)* to rush around being busy. **bustle** *(n)*.
+
+---
+
+**busy** busier busiest
+1 *(adj)* If you are **busy**, you have a lot of things to do. **busily** *(adv)*.
+2 *(adj)* A busy place has a lot of people in it and is full of activity.
+
+---
+
+**butcher** *(n)* someone who sells meat.
+
+---
+
+**butler** *(n)* the chief male servant in a house.
+
+---
+
+**butt** butting butted
+1 *(n)* a large barrel for water.
+2 *(v)* to hit with the head or horns.
+3 *(n)* the handle of a gun.
+
+---
+
+**butter** *(n)* a yellow fat made from cream, used in cooking and for spreading on bread.
+
+---
+
+**buttercup** *(n)* a small, yellow wild flower. See **plant**.
+
+---
