@@ -78,3 +78,63 @@ callousness *(n)*, callously *(adv)*.
 2 **cancel out** *(v)* if two things **cancel each other out**, they stop the effect of one another. *If you eat all day, it will cancel out the benefit of all the exercise you've taken.*
 
 ---
+
+**cancer** *(n)* a serious disease in which some cells in the body produce harmful growths. **cancerous** *(adj)*.
+
+---
+
+**candid** *(adj)* honest and open in what you are saying. **candidly** *(adv)*.
+
+---
+
+**candidate** *(n)* someone taking an examination, applying for a job, or standing in an election. **candidacy** *(n)*.
+
+---
+
+**candle** *(n)* a stick of wax with a string or wick running through it, which you burn to give light. **candlelight** *(n)*.
+
+---
+
+**candy** candies *(n) (US)* a small piece of food, made with sugar or chocolate (sweet, UK).
+
+---
+
+**cane** caning caned
+1 *(n)* the hollow stem of a plant like bamboo, used to make furniture.
+2 *(n)* a stick, especially a walking stick or a stick used for beating someone.
+3 *(v)* to beat someone with a cane as a punishment.
+
+---
+
+**canine**
+1 *(adj)* to do with dogs.
+2 *(n)* the pointed tooth on each side of your upper and lower jaw. See **teeth**.
+
+---
+
+**cannabis** *(n)* a drug that people smoke to give them a feeling of pleasure. Cannabis is illegal in Britain and in many other countries.
+
+---
+
+**cannibal** *(n)* someone who eats human flesh. **cannibalism** *(n)*.
+
+---
+
+**cannon** *(n)* a heavy gun which fires large metal balls. *The picture shows an 18th-century cannon.*
+
+---
+
+**canoe** *(n)* a narrow boat that you move through the water by paddling.
+
+---
+
+**canopy** canopies
+1 *(n)* a piece of cloth used as a cover over a doorway, bed, etc.
+2 *(n)* a shelter over something. *Tree tops formed a canopy over the forest floor.*
+3 *(n)* a cover over a cockpit. See **glider**, **helicopter**.
+
+---
+
+**canteen** *(n)* an area in an office, school, etc. where you can eat meals.
+
+---
