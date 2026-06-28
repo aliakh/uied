@@ -39,3 +39,42 @@ callousness *(n)*, callously *(adv)*.
 **cameraman** *(n)* someone whose job is to use a camera to make films and television programmes.
 
 ---
+
+**camouflage** *(kam-er-flaj)* camouflaging camouflaged
+1 *(n)* colouring or covering that makes animals, people, and objects look like their surroundings. *The praying mantis uses camouflage to hide from other creatures.*
+2 *(v)* to disguise something so that it blends in with its surroundings.
+
+---
+
+**camp** camping camped
+1 *(v)* to have a holiday in a tent. **camping** *(n)*.
+2 *(n)* a group of tents together.
+
+---
+
+**campaign** *(n)* a series of actions organized over a period of time in order to achieve or win something. *An election campaign.*
+
+---
+
+**camper**
+1 *(n)* someone who has a holiday in a tent.
+2 *(n)* a large vehicle in which you can sleep and cook meals.
+
+---
+
+**can** could
+1 *(v)* to be able to. *Natalie can speak fluent French.*
+2 *(v) (informal)* to be allowed to do something. *You can stay out until dark.*
+3 *(n)* a metal container. **canned** *(adj)*.
+
+---
+
+**canal** *(n)* a man-made waterway used by barges and narrow boats.
+
+---
+
+**cancel** cancelling cancelled
+1 *(v)* if someone **cancels** something that has been arranged, they say that it is not going to happen. **cancellation** *(n)*.
+2 **cancel out** *(v)* if two things **cancel each other out**, they stop the effect of one another. *If you eat all day, it will cancel out the benefit of all the exercise you've taken.*
+
+---
