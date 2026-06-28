@@ -74,3 +74,77 @@
 **cellar** *(n)* a room below ground level in a house, often used for storage.
 
 ---
+
+**cellular** *(adj)* made out of, or to do with cells. *Cellular tissue.*
+
+---
+
+**cellulose** *(n)* the substance from which the cell walls of plants are made.
+
+---
+
+**Celsius** *(adj)* measured on a temperature scale on which water boils at 100° and freezes at 0°. *Celsius is also called centigrade.*
+
+---
+
+**cement**
+1 *(n)* a grey powder, used in building, that becomes hard when you mix it with water and let it dry.
+2 *(n)* a substance that joins two things together. See **tooth**.
+
+---
+
+**cemetery** *cemeteries* *(n)* a place where people are buried.
+
+---
+
+**censor** *censoring censored*
+1 *(v)* to remove parts of a book, film, play, etc. that are thought to be harmful to the public. *censorship (n).*
+2 *(n)* someone whose job is to censor books, films, plays, etc.
+
+---
+
+**census** *(n)* an official count of all the people living in a country.
+
+---
+
+**cent** *(n)* a unit of money in the USA, Canada, Australia, and New Zealand. *One hundred cents make one dollar.*
+
+---
+
+**centaur** *(n)* a creature found in Greek and Roman myths which had the body and legs of a horse but the chest, arms, and head of a man.
+
+---
+
+**centenary** *centenaries* *(n)* the hundredth anniversary of something.
+
+---
+
+**centigrade** see **Celsius**.
+
+---
+
+**centipede** *(n)* a small creature with a very long body and lots of legs.
+
+---
+
+**central**
+1 *(adj)* in the middle. *centrally (adv).*
+2 *(adj)* most important. *The central problem.*
+**3 central heating** *(n)* a system for heating a building in which water or air is heated in one place and then carried in pipes all over the building.
+
+---
+
+**centre** *centring centred*
+1 *(n)* the middle of something.
+2 *(n)* a place where people go to do a particular activity. *A sports centre.*
+3 *(v)* to concentrate on something. *The campaign centres on the problems of the elderly.*
+
+---
+
+**centre of gravity** *(n)* the point on an object at which it can balance.
+
+---
+
+**centrifugal** *(adj)* pulling away from the centre. *You can feel the centrifugal effect when you swing an object in a circle.*
+
+---
