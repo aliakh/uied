@@ -1,0 +1,21 @@
+**cash-and-carry** *cash-and-carries* *(n)* a warehouse where you can buy things in large quantities at low prices.
+
+---
+
+**cashier** *(n)* someone who takes or pays out money in a shop or bank.
+
+---
+
+**cashpoint** *(n)* a machine from which people can take out money from their bank accounts, by using a plastic card.
+
+---
+
+**casino** *(n)* a place where people play gambling games such as roulette.
+
+---
+
+**casket**
+1 *(n) (poetic)* a jewellery box.
+2 *(n) (US)* a box which contains the body or the ashes of a dead person *(coffin, UK).*
+
+---
