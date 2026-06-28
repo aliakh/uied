@@ -19,3 +19,20 @@
 2 *(n) (US)* a box which contains the body or the ashes of a dead person *(coffin, UK).*
 
 ---
+
+**casserole**
+1 *(n)* a stew that is cooked slowly in the oven.
+2 *(n)* a dish with a lid that is used for cooking casseroles.
+
+---
+
+**cassette** *(n)* a flat, plastic box that contains recording tape, used to record and play sound and pictures. *A video cassette.* See **tape**.
+
+---
+
+**cast** *casting cast*
+1 *(n)* the actors in a play or film.
+2 *(n)* a hard plaster covering that supports a broken arm or leg.
+3 *(v)* When fishermen **cast** their fishing lines or nets, they throw them into the water.
+
+---
