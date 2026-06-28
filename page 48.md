@@ -36,3 +36,17 @@
 3 *(v)* When fishermen **cast** their fishing lines or nets, they throw them into the water.
 
 ---
+
+**castaway** *(n)* someone left on a deserted island after a shipwreck.
+
+---
+
+**caster sugar** or **castor sugar** *(n)* finely ground white sugar.
+
+---
+
+**castle**
+1 *(n)* a large, strong building, often surrounded by a wall and a moat. In the Middle Ages, noble families stayed in castles and soldiers defended them from attack. Also see **portcullis**.
+2 *(n)* a chesspiece, also known as a rook, that moves in straight lines across a chessboard. See **chess**.
+
+---
