@@ -47,3 +47,86 @@
 **cardboard** *(n)* very thick card, used for making boxes.
 
 ---
+
+**cardiac** *(adj)* to do with the heart.
+
+---
+
+**cardigan** *(n)* a knitted jacket which fastens down the front.
+
+---
+
+**care** *caring cared*
+1 *(v)* If you **care** about someone or something, you are very concerned about what happens to them. *caring (adj).*
+2 If you **take care of** someone, you look after them.
+3 If you do something **with care**, you pay attention to what you are doing.
+
+---
+
+**career** *(n)* the series of jobs that a person has in their life, usually in the same profession. *A career in teaching.*
+
+---
+
+**carefree** *(adj)* Someone who is **carefree** has no worries.
+
+---
+
+**careful** *(adj)* Someone who is **careful** takes trouble over what they are doing and does not take risks. *carefully (adv).*
+
+---
+
+**careless** *(adj)* Someone who is **careless** does not take much trouble or care over things. **carelessness** *(n).* *carelessly (adv).*
+
+---
+
+**caress** *caresses caressing caressed*
+*(v)* to touch gently. *caress (n).*
+
+---
+
+**caretaker** *(n)* someone whose job is to look after a school or some other public building.
+
+---
+
+**cargo** *cargoes* *(n)* goods that are carried by ship or aircraft.
+
+---
+
+**caricature** *(n)* an exaggerated picture of someone.
+
+---
+
+**carnival** *(n)* a public celebration. People wear colourful costumes, walk in processions, and dance in the streets at carnival time.
+
+---
+
+**carnivore** *(n)* an animal that eats meat. *carnivorous (adj).*
+
+---
+
+**carob**
+1 *(n)* an evergreen tree whose beans are used to make a food rather like chocolate.
+2 *(n)* a chocolate-like food.
+
+---
+
+**carol** *(n)* a religious song that people sing at Christmas. *carol (v).*
+
+---
+
+**carpenter** *(n)* someone who makes or repairs the wooden parts of buildings. *carpentry (n).*
+
+---
+
+**carpet**
+1 *(n)* a thick floor covering. *carpet (v).*
+2 *(n)* a thick layer of something. *A carpet of flowers. carpet (v).*
+
+---
+
+**carriage**
+1 *(n)* one of the parts of a train in which passengers travel.
+2 *(n)* a vehicle with wheels that is pulled by horses.
+3 *(n)* Your **carriage** is the way that you stand, sit, and walk.
+
+---
