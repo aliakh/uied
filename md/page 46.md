@@ -59,3 +59,48 @@
 **capitalism** *(n)* a way of organizing a country so that all the land, houses, factories, etc. belong to private individuals rather than the state. **capitalist** *(n)*, **capitalist** *(adj)*.
 
 ---
+
+**cappuccino** *(kap-er-cheen-oh) (n)* coffee made with frothy milk.
+
+---
+
+**capricious** *(adj)* Someone who is **capricious** is unpredictable and tends to change their mind without any obvious reason.
+
+---
+
+**capsize** capsizing capsized *(v)* If a boat or ship **capsizes**, it turns over in the water.
+
+---
+
+**capsule**
+1 *(n)* a small container of medicine that you can swallow.
+2 *(n)* the part of a rocket or spacecraft in which the crew travel.
+
+---
+
+**captain**
+1 *(n)* the person in charge of a ship or an aircraft.
+2 *(n)* the leader of a sports team.
+3 *(n)* an army officer.
+
+---
+
+**caption** *(n)* a short title or description printed below a cartoon, drawing, or photograph.
+
+---
+
+**captivate** captivating captivated *(v)* to delight someone. *Clara captivated us with her singing.*
+
+---
+
+**captive** *(n)* a person or animal who has been taken prisoner. **captivity** *(n)*, **captive** *(adj)*.
+
+---
+
+**capture** capturing captured *(v)* to take a person or a place by force.
+
+---
+
+**car** *(n)* a type of passenger motor vehicle. *The picture shows a cutaway view of a Ford Mondeo saloon car.*
+
+---
