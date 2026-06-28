@@ -51,3 +51,39 @@
 2 *(n)* an eye disease in which the lens becomes cloudy and vision becomes blurred.
 
 ---
+
+**catarrh** *(kat-arh) (n)* the thick liquid that blocks up your nose and throat when you have a cold.
+
+---
+
+**catastrophe** *(kat-ass-trof-ee) (n)* a sudden disaster. *catastrophic (kat-ass-trof-ik) (adj).*
+
+---
+
+**catch** *catches catching caught*
+1 *(v)* to grab hold of something moving through the air. *catch (n).*
+2 *(v)* to get someone whom you are chasing. *The police caught the thieves.*
+3 *(v)* If you **catch** a bus or train, you get on it.
+4 *(v)* If you **catch** someone doing something wrong, you see them doing it.
+5 *(n)* a fastening on a door, box, etc.
+6 *(v)* If something **catches on**, it becomes very popular.
+
+---
+
+**categorical** *(adj)* clear and plain. *Henry's reply was a categorical "No". categorically (adv).*
+
+---
+
+**category** *categories* *(n)* a class or group of things that have something in common.
+
+---
+
+**cater** *catering catered*
+1 *(v)* to provide food for a lot of people. *caterer (n). catering (n).*
+2 *(v)* to provide people with the things that they need. *This restaurant caters for vegetarians.*
+
+---
+
+**caterpillar** *(n)* a worm-like larva that changes into a butterfly or moth.
+
+---
