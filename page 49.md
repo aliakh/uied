@@ -87,3 +87,52 @@
 **caterpillar** *(n)* a worm-like larva that changes into a butterfly or moth.
 
 ---
+
+**cathode-ray tube** *(n)* a glass tube with no air inside it through which rays travel to produce an image on a screen. See **television**.
+
+---
+
+**Catholic** *(n)* a member of the Roman Catholic Church. *Catholic (adj).*
+
+---
+
+**cattle** *(plural n)* cows and bulls.
+
+---
+
+**cauldron** *(n)* a large, rounded cooking pot.
+
+---
+
+**cauliflower** *(n)* a vegetable with a large, rounded, white centre, surrounded by leaves. See **vegetable**.
+
+---
+
+**cause** *causing caused*
+1 *(v)* to make something happen.
+2 *(n)* the reason that something happens.
+3 *(n)* an aim or principle for which people fight.
+
+---
+
+**cautious** *(adj)* If you are **cautious**, you try hard to avoid mistakes or danger. *caution (n). cautiously (adv).*
+
+---
+
+**cavalry**
+1 *(plural n)* soldiers who fight on horseback.
+2 *(plural n)* soldiers who fight in armoured vehicles.
+
+---
+
+**cave** *(n)* a large hole underground or in the side of a hill or cliff.
+
+---
+
+**caveman** *cavemen* *(n)* someone who lived in caves in prehistoric times.
+
+---
+
+**cave painting** *(n)* a picture painted by a caveman on a cave wall in prehistoric times.
+
+---
