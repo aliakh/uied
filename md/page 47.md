@@ -130,3 +130,70 @@
 3 *(n)* Your **carriage** is the way that you stand, sit, and walk.
 
 ---
+
+**carriageway** *(n)* Motorways and major roads are divided into two carriageways, for traffic travelling in opposite directions.
+
+---
+
+**carrot**
+1 *(n)* an orange root vegetable. See **vegetable**.
+2 *(v)* If someone offers you a **carrot**, they promise you something nice in order to persuade you to do something.
+
+---
+
+**carry** *carries carrying carried*
+1 *(v)* to hold on to something and take it somewhere. *Please carry this tray.*
+2 *(v)* If a sound carries, it can be heard some distance away.
+3 *(v)* If you **carry out** a plan or idea, you put it into practice.
+
+---
+
+**cartilage** *(n)* a strong, stretchy substance found around your joints.
+
+---
+
+**cartography** *(n)* the art of drawing maps. *cartographer (n).*
+
+---
+
+**carton** *(n)* a cardboard or plastic box, usually containing food or drink.
+
+---
+
+**cartoon**
+1 *(n)* a short, animated film.
+2 *(n)* a funny drawing or series of drawings. *cartoonist (n).*
+
+---
+
+**cartridge**
+1 *(n)* a tube of ink used in a fountain pen.
+2 *(n)* a container that holds a bullet or pellets and the explosive that fires them.
+
+---
+
+**cartwheel** *(n)* a circular, sideways handstand.
+
+---
+
+**carve** *carving carved*
+1 *(v)* to cut slices from a piece of meat.
+2 *(v)* to cut a shape out of a piece of wood, stone, etc. *carver (n). carving (n).*
+
+---
+
+**case**
+1 *(n)* a container for carrying clothes when you travel.
+2 *(n)* an example of something. *This is a case of deliberate disobedience!*
+3 *(n)* a trial in a court of law.
+4 *(n)* a crime that the police are investigating.
+5 *(n)* The **case** of a noun or pronoun is the form that it takes, depending on its relationship with other words in the sentence. *"I" is the nominative case, "me" is the accusative case, and "my" is the possessive case.*
+
+---
+
+**cash** *cashes cashing cashed*
+1 *(n)* money in the form of notes and coins.
+2 *(v)* If someone **cashes** a cheque, they get money in exchange for it.
+3 *(v)* If you **cash in** on something, you benefit from it.
+
+---
