@@ -148,3 +148,59 @@
 **centrifugal** *(adj)* pulling away from the centre. *You can feel the centrifugal effect when you swing an object in a circle.*
 
 ---
+
+**centripetal** *(adj)* pulling towards the centre. *When you swing an object round in a circle, you pull it inwards and exert a centripetal force.*
+
+---
+
+**centurion** *(n)* an officer in the Roman army who was in command of 100 soldiers.
+
+---
+
+**century** *centuries* *(n)* a period of 100 years.
+
+---
+
+**ceramics**
+1 *(singular n)* the craft of making objects out of clay.
+2 *(plural n)* objects made of clay. *ceramic (adj).*
+
+---
+
+**cereal**
+1 *(n)* a grain crop grown for food, such as wheat, oats, or maize.
+2 *(n)* a breakfast food usually made from grain and eaten with milk.
+
+---
+
+**ceremony** *ceremonies* *(n)* formal actions, words, and often music, performed to mark an important occasion. *A wedding ceremony. ceremonial (adj). ceremonially (adv).*
+
+---
+
+**certain**
+1 *(adj)* If you are **certain** about something, you are sure about it. *Alex was certain he had posted the letter. certainty (n). certainly (adv).*
+2 *(adj)* particular. *The shop is closed at certain times.*
+
+---
+
+**certificate** *(n)* a piece of paper given to someone to prove that they have done something. *An examination certificate.*
+
+---
+
+**CFC** *short for* **chlorofluorocarbon**.
+
+---
+
+**chain**
+1 *(n)* a line of metal rings, called links, joined together.
+2 *(n)* a series of connected things. *A chain of events.*
+**3 chain store** *(n)* one of a group of shops in different towns that are owned by the same company and sell similar goods.
+
+---
+
+**chair** *chairing chaired*
+1 *(n)* a piece of furniture that you sit on, with four legs and a back.
+2 *(n)* the person in charge of a meeting, also called the chairman, chairwoman, or chairperson.
+3 *(v)* to take charge of a meeting.
+
+---
