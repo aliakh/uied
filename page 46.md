@@ -29,3 +29,33 @@
 2 *(adj)* able to do something well and skilfully. *Danny is a capable tennis player.* **capably** *(adv)*.
 
 ---
+
+**capacity** capacities
+1 *(n)* the amount a container can hold.
+2 *(n)* an ability to do something. *Cosmo has the capacity to absorb facts very fast.*
+
+---
+
+**cape**
+1 *(n)* a sleeveless coat that you wear over your shoulders.
+2 *(n)* a part of the coastline that sticks out into the sea. *The picture shows Cape Cod, on the east coast of North America.*
+
+---
+
+**capillary** capillaries
+1 *(n)* a small tube in your body which carries blood between arteries and veins.
+2 **capillary tube** *(n)* a very thin tube, made out of glass. See **thermometer**.
+
+---
+
+**capital**
+1 *(n)* the main city of a country, where the government is based.
+2 *(n)* a large letter. *You begin a sentence with a capital.*
+3 *(singular n)* an amount of money used to start a business.
+4 **capital punishment** *(n)* punishment by death.
+
+---
+
+**capitalism** *(n)* a way of organizing a country so that all the land, houses, factories, etc. belong to private individuals rather than the state. **capitalist** *(n)*, **capitalist** *(adj)*.
+
+---
