@@ -118,3 +118,58 @@
 **chariot** *(n)* a small, horse-drawn vehicle, used in ancient times in battles or for racing. *The picture shows a Roman chariot.*
 
 ---
+
+**charity** *charities*
+1 *(singular n)* money or other help that is given to people in need.
+2 *(n)* an organisation which raises money to help people in need.
+
+---
+
+**charm** *charming charmed*
+1 *(v)* If someone has **charm**, they behave in a pleasing and attractive way. charmer *(n).* charming *(adj).*
+2 *(v)* to please someone and make them like you.
+3 *(n)* a small object that some people believe will bring them good luck. *This ancient Egyptian charm represents a sacred eye.*
+
+---
+
+**chart** *charting charted*
+1 *(n)* a drawing showing information in the form of a table or picture.
+2 *(n)* a map of the stars or the sea.
+3 *(v)* to show information in the form of a chart.
+
+---
+
+**chase** *chasing chased (v)* to run after someone in order to catch them or make them go away. chase *(n).*
+
+---
+
+**chasm** *(kaz-um) (n)* a deep crack in the surface of the earth.
+
+---
+
+**chassis** *(sha-see)* chassis *(n)* the frame onto which the body of a vehicle is built.
+
+---
+
+**chat** *chatting chatted*
+1 *(v)* to talk to someone in a friendly and informal way. chat *(n).*
+2 *(v)* to communicate with other people through a Web site on the Internet by typing messages on a computer. chat *(n).*
+3 chat room *(n)* a Web site on the Internet where people can communicate by typing messages to each other.
+4 chat up *(v)* If you **chat someone up**, you talk in a friendly way to them because you find them attractive.
+
+---
+
+**château** *(shat-oh)* châteaux *(n)*
+1 a castle or large country house in France. *The picture shows the Azay-le-Rideau château in the Loire valley in France.*
+
+---
+
+**chatter** *chattering chattered*
+1 *(v)* to talk about unimportant things. chatter *(n).*
+2 *(v)* When your teeth **chatter**, they knock together because you are cold.
+
+---
+
+**chauffeur** *(show-fur) (n)* someone whose job is to drive a car for somebody else. chauffeur *(v).*
+
+---
