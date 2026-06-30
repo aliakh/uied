@@ -68,3 +68,57 @@
 **concerto** *concertos* or *concerti (n)* a piece of music for one or more solo instruments playing with an orchestra.
 
 ---
+
+**concession**
+1. *(n)* an agreement to allow something that would not normally be permitted. *As a special concession, you can stay up late.*
+2. *(n)* a reduction in price for particular types of people. *The theatre offers concessions to students.*
+
+---
+
+**concise** *(adj)* saying a lot in a few words. **concisely** *(adv).*
+
+---
+
+**conclude** *concluding concluded*
+1. *(v)* to decide that something is true because of the facts that you have. *I concluded that Bill must have stolen the jewels.* **conclusion** *(n).*
+2. *(v)* to finish or end something. **conclusion** *(n).*
+
+---
+
+**concoct** *concocting concocted*
+1. *(v)* to create something by mixing several different things together. **concoction** *(n).*
+2. *(v)* If you **concoct** an excuse, you invent it.
+
+---
+
+**concrete**
+1. *(n)* a building material made from a mixture of sand, small stones, cement, and water. **concrete** *(v).*
+2. *(adj)* real, or definite. *The detectives need some concrete evidence.*
+
+---
+
+**concussion** *(n)* unconsciousness, dizziness, or sickness caused by a heavy blow to your head. **concussed** *(adj).*
+
+---
+
+**condemn** *condemning condemned*
+1. *(v)* to say very strongly that you do not approve of something. *Mahatma Gandhi condemned all violence.* **condemnation** *(n).*
+2. *(v)* to force someone to suffer something unpleasant. *The murderer was condemned to death.*
+
+---
+
+**condense** *condensing condensed*
+1. *(v)* When a gas **condenses**, it turns into a liquid, usually as a result of cooling. **condensation** *(n).*
+2. *(v)* to make a piece of writing shorter by taking out unnecessary parts.
+
+---
+
+**condescending** *(adj)* If you are **condescending**, you behave as though you are better or more important than other people. **condescension** *(n).* **condescend** *(v).*
+
+---
+
+**condition** *conditioning conditioned*
+1. *(n)* the general state of a person, an animal, or a thing. *My dog is in good condition. The hostages suffered terrible living conditions.*
+2. *(n)* a medical problem that continues over a long period of time. *A heart condition.*
+
+---
