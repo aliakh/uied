@@ -129,3 +129,69 @@
 **cod** *cod* *(n)* a fish that is found in Northern Europe and which has white flesh that you can eat.
 
 ---
+
+**code**
+1. *(n)* a system of words, letters, or numbers, used instead of ordinary words to send secret messages. coded *(adj)*.
+2. *(n)* a set of numbers or letters used to give information briefly.
+3. *(n)* a set of rules. *A safety code.*
+
+---
+
+**coeducation** *(n)* the system of teaching boys and girls together in the same school. coeducational *(adj)*.
+
+---
+
+**coerce** *(ko-ers)* *coercing coerced* *(v)* to force someone to do something. coercion *(n)*.
+
+---
+
+**coffee**
+1. *(n)* a hot drink made from the roasted and ground beans of the coffee shrub.
+2. *(n)* a brown powder made from coffee beans and used to make the drink of coffee.
+
+---
+
+**coffin** *(n)* a box which contains the body or ashes of a dead person.
+
+---
+
+**cog**
+1. *(n)* one of the teeth on the edge of a wheel that turns machinery.
+2. **cog wheel** *(n)* a wheel with teeth that turns machinery. See **gear**.
+
+---
+
+**coherent** *(ko-heer-unt)* *(adj)* clear and logical. *A coherent argument.* coherence *(n)*.
+
+---
+
+**coil** *coiling coiled*
+1. *(v)* to wind something round and round into a series of loops. *The sailor coiled the rope neatly.* coil *(n)*.
+2. *(v)* to form loops. *The snake coiled around Perdita's leg.*
+
+---
+
+**coin** *coining coined*
+1. *(n)* a piece of money in the form of a metal disc. coinage *(n)*.
+2. *(v)* to invent a new word or a new meaning of a word. coinage *(n)*.
+
+---
+
+**coincide** *(ko-in-side)* *coinciding coincided* *(v)* If two things coincide, they happen at the same time.
+
+---
+
+**coincidence** *(ko-in-sid-ents)* *(n)* a chance happening or meeting. coincidental *(adj)*. coincidentally *(adv)*.
+
+---
+
+**colander** *(n)* a bowl with holes in it, used for draining liquid off food, such as vegetables.
+
+---
+
+**cold** *colder coldest*
+1. *(adj)* having a low temperature. cold *(n)*. coldness *(n)*.
+2. *(adj)* unfriendly. coldness *(n)*. coldly *(adv)*.
+3. *(n)* a common, mild illness that causes sneezing, a sore throat, and sometimes a slight fever.
+
+---
