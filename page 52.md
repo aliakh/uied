@@ -1,28 +1,31 @@
 **chauvinist** *(show-vin-ist)*
-1 *(n)* a man who believes that women are inferior to men. chauvinism *(n).* chauvinistic *(adj).*
-2 someone who believes that no other country is as good or as important as their own. chauvinism *(n).* chauvinistic *(adj).*
+1 *(n)* a man who believes that women are inferior to men.
+**chauvinism** *(n)*. **chauvinistic** *(adj)*.
+2 *(n)* someone who believes that no other country is as good or as important as their own.
+**chauvinism** *(n)*. **chauvinistic** *(adj)*.
 
 ---
 
-**cheap** *cheaper cheapest*
-1 *(adj)* not costing very much. cheapness *(n).* cheaply *(adv).*
+**cheap** **cheaper cheapest**
+1 *(adj)* not costing very much.
+**cheapness** *(n)*. **cheaply** *(adv)*.
 2 *(adj)* unkind and mean. *That was a cheap trick you played on me!*
 
 ---
 
-**cheat** *cheating cheated (v)* to act dishonestly in order to win a game or get what you want. cheat *(n).*
+**cheat** **cheating cheated** *(v)* to act dishonestly in order to win a game or get what you want. **cheat** *(n)*.
 
 ---
 
-**check** *checking checked*
-1 *(v)* to look at something in order to make sure that it is all right. check *(n).*
+**check** **checking checked**
+1 *(v)* to look at something in order to make sure that it is all right. **check** *(n)*.
 2 *(v)* to stop something from moving or growing. *We must check inflation.*
-3 *(n)* a pattern of different coloured squares. checked *(adj).*
-4 *(n) (US)* a printed piece of paper on which someone writes to tell their bank to pay money from their account (cheque, UK).
+3 *(n)* a pattern of different coloured squares. **checked** *(adj)*.
+4 *(n)* *(US)* a printed piece of paper on which someone writes to tell their bank to pay money from their account (cheque, UK).
 
 ---
 
-**checkers** *(plural n) (US)* a game played with black and white counters on a squared board (draughts, UK).
+**checkers** *(plural n)* *(US)* a game played with black and white counters on a squared board (draughts, UK).
 
 ---
 
@@ -36,17 +39,17 @@
 
 **cheek**
 1 *(n)* the side of your face below your eyes.
-2 *(n)* rude and disrespectful behaviour or speech. cheeky *(adj).* cheekily *(adv).*
+2 *(n)* rude and disrespectful behaviour or speech. **cheeky** *(adj)*. **cheekily** *(adv)*.
 
 ---
 
-**cheer** *cheering cheered*
-1 *(v)* to shout encouragement or approval. cheer *(n).*
-2 *(v)* If you **cheer up**, you begin to feel better.
+**cheer** **cheering cheered**
+1 *(v)* to shout encouragement or approval. **cheer** *(n)*.
+2 *(v)* if you **cheer up**, you begin to feel better.
 
 ---
 
-**cheerful** *(adj)* happy and lively. cheerfulness *(n).* cheerfully *(adv).*
+**cheerful** *(adj)* happy and lively. **cheerfulness** *(n)*. **cheerfully** *(adv)*.
 
 ---
 
@@ -58,13 +61,13 @@
 
 ---
 
-**chef** *(sheff) (n)* the chief cook in a restaurant.
+**chef** *(sheff)* *(n)* the chief cook in a restaurant.
 
 ---
 
 **chemical**
-1 *(n)* a substance used in chemistry. *Dangerous chemicals.*
-2 *(adj)* to do with, or made by chemistry. *A chemical reaction. Chemical fertilizers.* chemically *(adv).*
+1 *(n)* a substance used in chemistry. Dangerous chemicals.
+2 *(adj)* to do with, or made by chemistry. *A chemical reaction. Chemical fertilizers.* **chemically** *(adv)*.
 
 ---
 
@@ -82,11 +85,11 @@
 
 ---
 
-**cherish** *cherishes cherishing cherished (v)* to care for someone or something in a kind and loving way.
+**cherish** **cherishes cherishing cherished** *(v)* to care for someone or something in a kind and loving way.
 
 ---
 
-**cherry** *cherries (n)* a small red or black fruit with a stone at its centre. *See* **fruit**.
+**cherry** **cherries** *(n)* a small red or black fruit with a stone at its centre. *See* **fruit**.
 
 ---
 
@@ -103,15 +106,15 @@
 **chestnut**
 1 *(n)* a large, reddish-brown nut that grows in a prickly case.
 2 *(n)* a tree which produces chestnuts.
-3 *(n)* a reddish-brown colour. chestnut *(adj).*
+3 *(n)* a reddish-brown colour. **chestnut** *(adj)*.
 
 ---
 
-**chest of drawers** *chests of drawers (n)* a piece of furniture with drawers, used for storing clothes.
+**chest of drawers** **chests of drawers** *(n)* a piece of furniture with drawers, used for storing clothes.
 
 ---
 
-**chew** *chewing chewed (v)* to crush food in your teeth.
+**chew** **chewing chewed** *(v)* to crush food in your teeth.
 
 ---
 
@@ -126,7 +129,7 @@
 **chicken**
 1 *(n)* a hen, usually a young one.
 2 *(n)* the meat from a young hen. *Roast chicken.*
-3 *(n) (slang)* someone who is too scared to do something.
+3 *(n)* *(slang)* someone who is too scared to do something.
 
 ---
 
@@ -136,11 +139,11 @@
 
 **chief**
 1 *(n)* the leader of a group of people.
-2 *(adj)* main, or most important. chiefly *(adv).*
+2 *(adj)* main, or most important. **chiefly** *(adv)*.
 
 ---
 
-**child** *children*
+**child** **children**
 1 *(n)* a young person who is not yet grown up.
 2 *(n)* a son or daughter.
 
@@ -150,7 +153,7 @@
 
 ---
 
-**childish** *(adj)* immature and stupid. *Childish behaviour.* childishness *(n).* childishly *(adv).*
+**childish** *(adj)* immature and stupid. *Childish behaviour.* **childishness** *(n)*. **childishly** *(adv)*.
 
 ---
 
@@ -158,15 +161,15 @@
 
 ---
 
-**chill** *chilling chilled*
+**chill** **chilling chilled**
 1 *(v)* to make something cold.
-2 *(n)* a feeling of slight coldness. *There is a chill in the air.* chilly *(adj).*
+2 *(n)* a feeling of slight coldness. *There is a chill in the air.* **chilly** *(adj)*.
 3 *(n)* a cold. *Don't catch a chill.*
-4 *(n)* a feeling of fear. chilling *(adj).*
+4 *(n)* a feeling of fear. **chilling** *(adj)*.
 
 ---
 
-**chime** *chiming chimed (v)* When a bell or clock **chimes**, it makes a ringing sound. chime *(n).*
+**chime** **chiming chimed** *(v)* when a bell or clock **chimes**, it makes a ringing sound. **chime** *(n)*.
 
 ---
 
