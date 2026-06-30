@@ -65,3 +65,63 @@
 4 *(n)* *(informal)* attractiveness and stylishness. *That bike has class!* **classy** *(adj)*.
 
 ---
+
+**classic**
+1 *(adj)* of very good quality and likely to remain popular for a long time. *A classic film.*
+2 *(adj)* typical. *A classic example of sixties style.*
+3 **classics** *(plural n)* the languages and literature of ancient Greece and Rome.
+
+---
+
+**classical**
+1 *(adj)* in the style of ancient Greece or Rome. *Classical architecture.*
+2 *(adj)* traditional or accepted.
+3 **classical music** *(n)* serious music that does not become out of date.
+
+---
+
+**classify** **classifies classifying classified** *(v)* to put things into groups according to their characteristics. **classification** *(n)*.
+
+---
+
+**clatter** **clattering clattered** *(v)* when things clatter, they bang together noisily. **clatter** *(n)*.
+
+---
+
+**clause**
+1 *(n)* a group of words which contain a verb and form one part of a sentence. *The sentence "She ran away when she saw the alien" is made up of two clauses: "She ran away" and "when she saw the alien".*
+2 *(n)* one section of a formal legal document.
+
+---
+
+**claustrophobia** *(kloss-trof-oh-bee-yuh)* *(n)* the fear of being in small, enclosed places. **claustrophobic** *(adj)*.
+
+---
+
+**claw** **clawing clawed**
+1 *(n)* a hard, curved nail on the foot of an animal or a bird.
+2 *(v)* if a person, animal, or bird **claws** something or someone, they scratch at them with their nails or claws.
+
+---
+
+**clay** *(n)* a kind of earth that is baked to make bricks or pottery.
+
+---
+
+**clean** **cleaning cleaned; cleaner cleanest**
+1 *(adj)* not dirty, or not messy. **cleanly** *(adv)*.
+2 *(v)* to remove the dirt from something. **cleaner** *(n)*.
+
+---
+
+**cleanse** **cleansing cleansed** *(v)* to make something clean or pure.
+
+---
+
+**clear** **clearing cleared; clearer clearest**
+1 *(adj)* easy to see through. **clearly** *(adv)*.
+2 *(adj)* easy to understand. **clearly** *(adv)*.
+3 *(v)* to remove things that are covering or blocking a place. *Clear the table.* **clear** *(adj)*.
+4 *(v)* to jump over something without touching it. *The horse cleared all the jumps.* **clearance** *(n)*.
+
+---
