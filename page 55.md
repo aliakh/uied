@@ -123,5 +123,85 @@
 2 *(adj)* easy to understand. **clearly** *(adv)*.
 3 *(v)* to remove things that are covering or blocking a place. *Clear the table.* **clear** *(adj)*.
 4 *(v)* to jump over something without touching it. *The horse cleared all the jumps.* **clearance** *(n)*.
+5 *(v)* to declare that someone is not guilty of a crime.
+
+---
+
+**clearing** *(n)* an area of a forest or a wood that has been cleared of trees.
+
+---
+
+**clef** *(n)* a symbol written at the beginning of a line of music, to show the pitch of the notes. *Bass clef. Treble clef. See* **notation**.
+
+---
+
+**cleft** *(n)* a split, or a division.
+
+---
+
+**clench** **clenches clenching clenched** *(v)* to hold or squeeze something tightly.
+
+---
+
+**clergy** *(plural n)* priests in the Christian church.
+
+---
+
+**clerical**
+1 *(adj)* clerical work is general office work, for example, filing.
+2 *(adj)* to do with the clergy.
+
+---
+
+**clerk** *(rhymes with dark)* *(n)* someone who keeps records in an office, a bank, or a law court.
+
+---
+
+**clever** **cleverer cleverest**
+1 *(adj)* able to understand things or to do things quickly and easily. **cleverness** *(n)*. **cleverly** *(adv)*.
+2 *(adj)* intelligently and carefully thought out. *A clever plan.* **cleverly** *(adv)*.
+
+---
+
+**cliché** *(klee-shay)* *(n)* a phrase that is used so often that it no longer has very much meaning. *"Over the moon" is a cliché.*
+
+---
+
+**click** **clicking clicked**
+1 *(v)* to make a short, sharp sound. **click** *(n)*.
+2 *(v)* *(informal)* if an idea **clicks**, it suddenly becomes clear to you.
+
+---
+
+**client** *(n)* someone who uses the services of a professional person, such as a lawyer or an accountant.
+
+---
+
+**cliff** *(n)* a high, steep rock face on a coast.
+
+---
+
+**cliffhanger** *(n)* a story, film, etc. that is exciting because you do not know what is going to happen next.
+
+---
+
+**climate**
+1 *(n)* the usual weather in a place. *A warm climate.* **climatic** *(adj)*.
+2 *(n)* the general situation or mood at a particular time. *A positive economic climate.*
+
+---
+
+**climax** **climaxes** *(n)* the most exciting part of a story or an event, which usually happens near the end.
+
+---
+
+**climb** **climbing climbed**
+1 *(v)* to move upwards. **climber** *(n)*.
+2 *(n)* an upwards movement or slope.
+3 *(v)* to get on or off something using your hands to support and help you.
+
+---
+
+**cling** **clinging clung** *(v)* to hold on to something very tightly.
 
 ---
