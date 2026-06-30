@@ -48,3 +48,69 @@
 **chocolate** *(n)* a sweet food made from beans that grow on the tropical cacao tree. **chocolaty** *(adj)*.
 
 ---
+
+**choice**
+1 *(n)* the thing or person that you have selected. *Jake was a good choice as team captain.*
+2 *(n)* all the things that you can choose from. *This menu offers a very wide choice.*
+3 *(adj)* of very good quality. *Choice fruit and vegetables.*
+
+---
+
+**choir** *(kwire)* *(n)* a group of people who sing together.
+
+---
+
+**choke** **choking choked**
+1 *(v)* to struggle to breathe because something is blocking your breathing passages.
+2 *(v)* to kill someone by squeezing their neck until they stop breathing.
+3 *(v)* to block something. *Leaves had choked the stream.*
+4 *(n)* the control in a car that reduces the flow of air to the engine so that the car starts more easily.
+
+---
+
+**cholera** *(kol-er-ah)* *(n)* a dangerous disease which causes severe sickness and diarrhoea.
+
+---
+
+**cholesterol** *(kol-est-er-ol)* *(n)* a substance found in foods such as butter and cheese, that is used to carry fats around your body.
+
+---
+
+**choose** **choosing chose chosen**
+1 *(v)* to pick out one person or thing from several.
+2 *(v)* if you **choose** to do something, you decide to do it.
+
+---
+
+**chop** **chopping chopped**
+1 *(v)* to cut something with a knife or an axe. **chop** *(n)*.
+2 *(n)* a small piece of lamb or pork on a bone.
+3 *(v)* if you **chop and change**, you keep changing your mind.
+
+---
+
+**choppy** **choppier choppiest** *(adj)* when the sea is **choppy**, it is quite rough.
+
+---
+
+**chopsticks** *(plural n)* narrow sticks for eating food, used by people in Far Eastern countries.
+
+---
+
+**choral** *(kor-al)* *(adj)* sung by a choir. *Choral music.*
+
+---
+
+**chord** *(kord)*
+1 *(n)* a combination of musical notes played at the same time. *See* **notation**.
+2 *(n)* a straight line that joins two points on a curve. *See* **circle**.
+
+---
+
+**chore** *(chaw)* *(n)* a job that has to be done many times, such as washing dishes or cleaning.
+
+---
+
+**choreographer** *(koh-ree-og-raf-er)* *(n)* someone who arranges dance steps and movements for a ballet or show. **choreography** *(n)*.
+
+---
