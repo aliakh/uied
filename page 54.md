@@ -89,3 +89,62 @@
 **circumspect** *(adj)* cautious, or careful. **circumspectly** *(adv)*.
 
 ---
+
+**circumstance** *(n)* the **circumstances** of an event are the things which affect the way that it happens. *Laura took her exam under very difficult circumstances.*
+
+---
+
+**circus** **circuses** *(n)* a travelling show in which clowns, acrobats, and animals perform.
+
+---
+
+**cistern** *(n)* a container for storing water, especially one in the roof of a house or attached to a toilet.
+
+---
+
+**citizen**
+1 *(n)* a member of a particular country who has the right to live there. *A British citizen.*
+2 *(n)* a person who lives in a particular town or city. *A citizen of New York.*
+
+---
+
+**citrus fruit** *(n)* a sharp-tasting, juicy fruit such as an orange, a lemon, or a grapefruit.
+
+---
+
+**city** **cities** *(n)* a very large or important town.
+
+---
+
+**civic** *(adj)* to do with a city or the people who live in it. *Civic centre.*
+
+---
+
+**civil**
+1 *(adj)* to do with the government or people of a country, rather than its army or religion. *The civil service.*
+2 *(adj)* polite. *Please try to be civil to your great aunt!* **civility** *(n)*.
+3 **civil rights** *(plural n)* the claims that all members of a society have to equal treatment and freedom.
+4 **civil servant** *(n)* someone who works in a government department, such as a tax office.
+5 **civil war** *(n)* a war between different groups of people within the same country.
+
+---
+
+**civilian** *(n)* someone who is not a member of the armed forces.
+
+---
+
+**civilization**
+1 *(n)* a highly developed and organized society, especially one in the past. *The ancient civilizations of Greece and Rome.*
+2 *(n)* an advanced stage of human development, organization, and culture.
+
+---
+
+**civilize** or **civilise** **civilizing civilized**
+1 *(v)* to improve a society, so that it is better organized and its people have a higher standard of living. **civilized** *(adj)*.
+2 *(v)* to improve someone's manners and education. **civilized** *(adj)*.
+
+---
+
+**CJD** *(n)* a slow-developing, fatal disease that affects humans, damaging their brains. One type of CJD is linked to the cattle disease BSE. The initials CJD stand for Creutzfeldt-Jakob disease.
+
+---
