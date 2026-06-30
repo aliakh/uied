@@ -34,3 +34,64 @@
 **clock** *(n)* an instrument that tells the time.
 
 ---
+
+**clockwise** *(adv)* in the direction that the hands of a clock move. *We ran clockwise round the track.* **clockwise** *(adj)*.
+
+---
+
+**clockwork**
+1 *(n)* a mechanism that makes things like clocks and toys work when they are wound up with a key. **clockwork** *(adj)*.
+2 if things go like **clockwork**, there are no problems.
+
+---
+
+**clod** *(n)* a lump of earth or clay.
+
+---
+
+**clog** **clogging clogged**
+1 *(v)* to block something. *Some leaves had clogged the drain.*
+2 *(n)* a heavy, wooden shoe, often worn in the Netherlands.
+
+---
+
+**clone** **cloning cloned** *(v)* to grow a plant or animal from the cells of a parent plant or animal so that it is identical to the parent. **clone** *(n)*.
+
+---
+
+**close** **closing closed; closer closest**
+1 *(rhymes with nose)* *(v)* to shut something.
+2 *(rhymes with nose)* *(v)* to end something. *The enquiry is closed.* **close** *(n)*.
+3 *(rhymes with dose)* *(adv)* near. *Stay close to me!* **close** *(adj)*.
+4 *(rhymes with dose)* *(adj)* careful. *Keep a close watch on the children.* **closely** *(adv)*.
+5 *(rhymes with dose)* *(adj)* when the weather is **close**, it is very hot and humid.
+
+---
+
+**closed-circuit television** *(n)* a television system that shows things happening nearby. It is often used to watch shoppers or people in banks.
+
+---
+
+**closet** *(n)* *(US)* a piece of furniture or a small room, used for storing things, especially clothes (wardrobe, UK).
+
+---
+
+**close-up** *(n)* a very detailed view of something, especially a photograph taken from close to a person or thing. **close-up** *(adj)*.
+
+---
+
+**clot** **clotting clotted**
+1 *(v)* when a liquid, such as blood, **clots**, it becomes thicker and forms lumps. **clot** *(n)*.
+2 *(n)* *(informal)* a stupid person.
+
+---
+
+**cloth**
+1 *(n)* material made from wool, cotton, etc.
+2 *(n)* a small piece of material used for cleaning.
+
+---
+
+**clothes** *(plural n)* things that you wear, for example, shirts and trousers. **clothe** *(v)*.
+
+---
