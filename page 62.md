@@ -51,3 +51,73 @@
 2. *(v)* to mistake one thing for another. *People often confuse Tom with his brother.* **confusion** *(n).* **confused** *(adj).*
 
 ---
+
+**congeal** *congealing congealed (v)* When a liquid **congeals**, it becomes thick or solid.
+
+---
+
+**congested** *(adj)* blocked-up and not allowing movement. *Congested roads. Congested sinuses.* **congestion** *(n).*
+
+---
+
+**congratulate** *congratulating congratulated (v)* to tell someone that you are pleased because something good has happened to them or they have done something well. **congratulations** *(plural n).*
+
+---
+
+**congregation** *(n)* a group of people gathered together for worship.
+
+---
+
+**Congress** *(n)* the law-making body of the USA. **Congressional** *(adj).*
+
+---
+
+**conifer** *(n)* an evergreen tree that produces cones. **coniferous** *(adj).*
+
+---
+
+**conjunction** *(n)* a word that connects two parts of a sentence or phrase. *"And", "but", and "if" are all conjunctions.* See page 3.
+
+---
+
+**conjurer** or **conjuror** *(n)* someone who performs magic tricks to entertain people. **conjuring** *(n).*
+
+---
+
+**conker** *(n)* a hard and shiny brown nut from the horse chestnut tree.
+
+---
+
+**connect** *connecting connected (v)* to join together two or more things, ideas, or places.
+
+---
+
+**connection**
+1. *(n)* a link between objects or ideas.
+2. *(n)* a train or bus arranged so that people getting off other trains or buses can use it to continue their journey.
+
+---
+
+**connoisseur** *(kon-er-ser) (n)* someone who knows a lot about a subject, and appreciates things that are of good quality.
+
+---
+
+**conquer** *conquering conquered (v)* to defeat an enemy and take control of them by force. **conqueror** *(n).*
+
+---
+
+**conscience** *(kon-shenss) (n)* your knowledge of what is right and wrong, that makes you feel guilty when you have done something wrong.
+
+---
+
+**conscientious**
+1. *(adj)* If you are **conscientious**, you make sure that you do things well and thoroughly. **conscientiously** *(adv).*
+2. **conscientious objector** *(n)* someone who refuses to fight in a war because they believe that it is wrong to fight and kill.
+
+---
+
+**conscious**
+1. *(adj)* awake and able to see, hear, think, etc. **consciousness** *(n).*
+2. *(adj)* aware of something. *I slowly became conscious that everyone was looking at me.* **consciousness** *(n).*
+
+---
