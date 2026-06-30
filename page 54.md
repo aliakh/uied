@@ -62,3 +62,30 @@
 4 *(n)* a curved, upper area of seating in a theatre.
 
 ---
+
+**circuit** *(sir-kit)*
+1 *(n)* a circular route. *A race circuit.*
+2 *(n)* the complete path that an electrical current can flow around.
+3 **circuit diagram** *(n)* a diagram that shows an electrical circuit, using symbols recognized throughout the world.
+
+---
+
+**circulation**
+1 *(n)* the number of copies of a newspaper, magazine, etc. that are bought each day, week, etc.
+2 *(n)* the movement of blood in blood vessels around the body.
+
+---
+
+**circumcision** *(n)* the removal of the foreskin at the end of a boy's or a man's penis, usually for religious reasons. **circumcise** *(v)*.
+
+---
+
+**circumference**
+1 *(n)* the outer edge of a circle. *See* **circle**.
+2 *(n)* the distance around the edge of a circle.
+
+---
+
+**circumspect** *(adj)* cautious, or careful. **circumspectly** *(adv)*.
+
+---
