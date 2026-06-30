@@ -114,3 +114,52 @@
 **choreographer** *(koh-ree-og-raf-er)* *(n)* someone who arranges dance steps and movements for a ballet or show. **choreography** *(n)*.
 
 ---
+
+**chorus** *(kor-us)* **choruses chorusing chorused**
+1 *(n)* the part of a song that is repeated after each verse.
+2 *(n)* a large group of people who sing or speak together.
+3 *(v)* to say something all together.
+
+---
+
+**christening** *(n)* a Christian ceremony in which a person is accepted into the Christian church and is given a name. **christen** *(v)*.
+
+---
+
+**Christianity** *(n)* the religion based on the life and teachings of Jesus Christ. Christians believe that Jesus is the son of God, and that they will live with God after they die if they believe in him and follow his teachings. **Christian** *(n)*. **Christian** *(adj)*.
+
+---
+
+**Christmas** **Christmases** *(n)* the Christian festival which celebrates the birth of Jesus Christ.
+
+---
+
+**chromatography** *(n)* the process of separating parts of a mixture by letting it travel through a material that absorbs each part at a different rate.
+
+---
+
+**chromosome** *(n)* the part of a cell that carries the genes that give living things their special characteristics.
+
+---
+
+**chronic**
+1 *(adj)* *(informal)* very bad. **chronically** *(adv)*.
+2 *(adj)* if something is **chronic**, it does not get better for a long time. *Chronic bronchitis.* **chronically** *(adv)*.
+
+---
+
+**chronicle** **chronicling chronicled** *(v)* to record historical events in a careful, detailed way. **chronicle** *(n)*.
+
+---
+
+**chronological** *(adj)* arranged in the order in which events happened. **chronology** *(n)*. **chronologically** *(adv)*.
+
+---
+
+**chrysalis** *(kriss-er-lis)* **chrysalises** *(n)* a moth or butterfly at the stage of development between a caterpillar and an adult. A chrysalis is covered in a hard outer shell. *See* **caterpillar**.
+
+---
+
+**chubby** **chubbier chubbiest** *(adj)* slightly fat or plump.
+
+---
