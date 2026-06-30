@@ -119,5 +119,66 @@
 **conscious**
 1. *(adj)* awake and able to see, hear, think, etc. **consciousness** *(n).*
 2. *(adj)* aware of something. *I slowly became conscious that everyone was looking at me.* **consciousness** *(n).*
+3. *(adj)* deliberate. *I've made a conscious effort to improve.* **consciously** *(adv).*
+
+---
+
+**consecutive** *(adj)* happening or following one after the other. *Marcia was away for four consecutive days.* **consecutively** *(adv).*
+
+---
+
+**consent** *consenting consented (v)* If you **consent** to something, you agree to it. **consent** *(n).*
+
+---
+
+**consequence** *(n)* the result of an action. **consequent** *(adj).* **consequently** *(adv).*
+
+---
+
+**conservation** *(n)* the protection of nature, wildlife, and other valuable things, such as buildings and paintings. **conservationist** *(n).*
+
+---
+
+**conservative**
+1. *(adj)* moderate, cautious, and not extreme. *Marcus has a very conservative dress sense.* **conservatively** *(adv).*
+2. **Conservative Party** *(n)* one of the main political parties in Britain, promoting private enterprise and competition.
+
+---
+
+**conservatory** *conservatories (n)* a glass room attached to a house and used for growing plants.
+
+---
+
+**consider** *considering considered*
+1. *(v)* to think about something carefully before deciding what to do.
+2. *(v)* to believe that something is true. *Danny considers school to be a waste of time!*
+3. *(v)* to take something into account. *We must consider Celia's feelings.*
+
+---
+
+**considerable** *(adj)* fairly large. *A considerable amount of money.* **considerably** *(adv).*
+
+---
+
+**considerate** *(adj)* If you are **considerate**, you think about other people's needs and feelings. **considerately** *(adv).*
+
+---
+
+**consideration**
+1. *(n)* careful thought that you give to something before making a decision.
+2. *(n)* a fact that needs to be taken into account before a decision can be made.
+3. *(n)* If you **show consideration**, you care about other people's needs and feelings. **considerate** *(adj).*
+
+---
+
+**considering** *(conj)* taking into account certain things. *You got here very quickly, considering the weather.* **considering** *(prep).*
+
+---
+
+**consignment** *(n)* a number of things that are delivered together.
+
+---
+
+**consist** *consisting consisted (v)* If something **consists** of different things, it is made up of those things.
 
 ---
