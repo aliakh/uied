@@ -96,3 +96,33 @@
 **compost** *(n)* a mixture of rotted plants that is added to soil to make it richer.
 
 ---
+
+**comprehension**
+1. *(n)* understanding. comprehend *(v)*.
+2. *(n)* a test in which you read or listen to a text and then answer questions about it, to show how well you have understood it.
+
+---
+
+**comprehensive**
+1. *(n)* In Britain, a comprehensive is a secondary school where pupils of all abilities are taught together.
+2. *(adj)* including everything that is necessary. *A comprehensive list.* comprehensively *(adv)*.
+
+---
+
+**compress** *compresses compressing compressed* *(v)* to press or squeeze something so that it will fit into a small space. compression *(n)*.
+
+---
+
+**compromise** *compromising compromised*
+1. *(v)* to agree to accept something that is not exactly what you wanted. compromise *(n)*.
+2. *(n)* an agreement that is half way between two opposite views.
+
+---
+
+**compulsory** *(adj)* If something is compulsory, there is a law or rule that says you must do it.
+
+---
+
+**computer** *(n)* a machine that can store large amounts of information and do very quick and complicated calculations. computing *(n)*.
+
+---
