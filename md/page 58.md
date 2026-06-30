@@ -109,5 +109,67 @@
 
 **combat** *combating combated*
 1. *(v)* to fight against something. *Regular brushing helps combat tooth decay.*
+2. *(n)* fighting between people or armies. combatant *(n)*.
+
+---
+
+**combine** *combining combined* *(v)* to join or mix two or more things together. combination *(n)*.
+
+---
+
+**combustion** *(n)* the process of catching fire and burning. combust *(v)*.
+
+---
+
+**come** *coming came come*
+1. *(v)* to move towards a place. *Louise came into the garden.*
+2. *(v)* to arrive. *Barney was waiting for his friends to come.*
+3. *(v)* If you **come from** a particular place, you were born in that place.
+4. *(v)* If something **comes about**, it happens.
+5. *(v)* If you **come across** something, you find it by chance.
+6. *(v)* If you **come round**, you become conscious again.
+
+---
+
+**comedian** *(n)* an entertainer who tells jokes and funny stories to make people laugh.
+
+---
+
+**comedy** *comedies*
+1. *(n)* a funny play or film.
+2. *(n)* anything that makes people laugh. *Merlin's first attempt at skating was a comedy.*
+
+---
+
+**comet** *(n)* an object that travels around the Sun and leaves a trail of light behind it.
+
+---
+
+**comfort** *comforting comforted*
+1. *(v)* to make someone feel less worried or upset. *We comforted the lost child.* comforting *(adj)*. comfortingly *(adv)*.
+2. *(n)* the feeling of being relaxed and free from pain or worries.
+3. *(n)* a luxury that makes your life more pleasant and enjoyable. *Home comforts.*
+
+---
+
+**comfortable**
+1. *(adj)* If you are **comfortable**, you feel relaxed in your body or your mind. comfortably *(adv)*.
+2. *(adj)* If something is **comfortable**, it allows you to relax and feel pleasure. *A comfortable chair.*
+
+---
+
+**comic**
+1. *(n)* a magazine containing stories told with pictures.
+2. *(n)* someone who tells jokes and funny stories.
+3. *(adj)* funny or amusing. comical *(adj)*.
+
+---
+
+**comma** *(n)* the punctuation mark (,) used for separating different parts of a sentence or different words in a list.
+
+---
+
+**command** *commanding commanded*
+1. *(v)* to order someone to do something. command *(n)*.
 
 ---

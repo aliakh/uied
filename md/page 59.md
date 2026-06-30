@@ -49,3 +49,63 @@
 2. *(v)* if you commit yourself to something, you promise that you will do it or support it. commitment *(n)*. committed *(adj)*.
 
 ---
+
+**committee** *(n)* a group of people chosen to discuss things and make decisions for a larger group.
+
+---
+
+**commodity** *commodities* *(n)* a product that is bought and sold.
+
+---
+
+**common** *commoner commonest*
+1. *(adj)* existing in large numbers. *A common problem.*
+2. *(adj)* happening often. *A common problem.*
+3. *(adj)* ordinary and not special in any way.
+4. *(adj)* shared by two or more people or things. *This feature is common to both cars.*
+5. **common sense** *(n)* the ability to think and behave sensibly.
+6. **The Commons** *(plural n)* the House of Commons, the lower house of the British Parliament, whose members are elected.
+
+---
+
+**commonplace** *(adj)* If something is commonplace, it happens frequently. *Traffic jams in city centres are commonplace events.*
+
+---
+
+**Commonwealth**
+1. **The Commonwealth** *(n)* an association of countries all over the world that used to be ruled by Britain.
+2. *(n)* a country made up of several self-governing states that are controlled by a central government. *The Commonwealth of Australia.*
+
+---
+
+**commotion** *(n)* a lot of noisy, excited activity.
+
+---
+
+**communal** *(adj)* shared by several people. *A communal bathroom.* communally *(adv)*.
+
+---
+
+**commune** *(n)* a group of people who live together and share things with each other.
+
+---
+
+**communicate** *communicating communicated* *(v)* to share information, ideas, or feelings with another person by talking, writing, etc. communication *(n)*. communicative *(adj)*.
+
+---
+
+**Communion** *(n)* a Christian service in which people eat bread and drink wine in memory of the death and resurrection of Jesus Christ.
+
+---
+
+**communiqué** *(kom-yoon-ee-kay)* *(n)* an official report or statement.
+
+---
+
+**communism** *(n)* a way of organizing a country so that all the land, houses, factories, etc. belong to the state and the profits are shared among everyone. communist *(n)*. communist *(adj)*.
+
+---
+
+**community** *communities* *(n)* a group of people who live in the same area or who have something in common with each other.
+
+---
