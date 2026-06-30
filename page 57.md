@@ -69,3 +69,63 @@
 **coating** *(n)* a covering of something. *The cake had a coating of chocolate.*
 
 ---
+
+**coat of arms** *coats of arms* *(n)* a design in the shape of a shield that is used as the special sign of a family, a city, or an organization.
+
+---
+
+**coax** *(kokss)* *coaxes coaxing coaxed* *(v)* to persuade someone gently and patiently to do something.
+
+---
+
+**cobbles** *(plural n)* small, round stones, used in the past for making road surfaces. cobbled *(adj)*.
+
+---
+
+**cobra** *(n)* a snake with a poisonous bite. Cobras can spread the skin of their neck so that it looks like a hood.
+
+---
+
+**cobweb** *(n)* a very fine net of sticky threads, made by a spider to catch flies and other insects.
+
+---
+
+**cocaine** *(n)* a powerful drug used by doctors to prevent pain. Cocaine is strongly addictive and is used illegally by some people.
+
+---
+
+**cock**
+1. *(n)* a fully-grown male chicken.
+2. *(n)* a male bird.
+
+---
+
+**cockpit** *(n)* the area in the front of a plane where the pilot sits.
+
+---
+
+**cockroach** *cockroaches* *(n)* a large insect which lives in warm, dark places, especially where food is stored. See **insect**.
+
+---
+
+**cocktail** *(n)* a drink made by mixing several different kinds of drink together. Cocktails are usually alcoholic.
+
+---
+
+**cocoa**
+1. *(n)* a brown powder made from the roasted beans of the cacao tree, and used to make chocolate.
+2. *(n)* a hot, milky drink made with cocoa powder.
+
+---
+
+**coconut** *(n)* a very large nut with a hard, hairy shell and sweet, white flesh.
+
+---
+
+**cocoon** *(n)* a covering made from threads or mucus produced by some animals to protect themselves or their eggs.
+
+---
+
+**cod** *cod* *(n)* a fish that is found in Northern Europe and which has white flesh that you can eat.
+
+---
