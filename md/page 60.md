@@ -40,3 +40,59 @@
 **compile** *compiling compiled* *(v)* to write a book or a report by bringing together many different pieces of information. compilation *(n)*.
 
 ---
+
+**complain** *complaining complained* *(v)* to say that you are unhappy about something.
+
+---
+
+**complaint**
+1. *(n)* a statement saying that you are unhappy about something.
+2. *(n)* an illness. *A heart complaint.*
+
+---
+
+**complete** *completing completed*
+1. *(adj)* If something is complete, it has all the parts that are needed or wanted. *A complete pack of cards.*
+2. *(v)* to finish something. completion *(n)*.
+3. *(adj)* in every way. *The news was a complete surprise.* completely *(adv)*.
+
+---
+
+**complex** *complexes*
+1. *(adj)* very complicated. complexity *(n)*.
+2. *(n)* a set of strong feelings that you cannot control or forget about, and that causes problems for you. *Nathan has a complex about being short.*
+3. *(n)* a group of buildings that are close together and are used for a particular purpose. *A leisure complex.*
+
+---
+
+**complexion** *(n)* the colour and look of the skin on your face.
+
+---
+
+**complicated** *(adj)* Something that is complicated contains lots of different parts or ideas and so is difficult to use or understand. complication *(n)*. complicate *(v)*.
+
+---
+
+**compliment** *complimenting complimented* *(v)* When you compliment someone, you tell them that you admire them or think that they have done something well. compliment *(n)*.
+
+---
+
+**complimentary**
+1. *(adj)* If someone is complimentary about a person or thing, they praise it. *Jason was complimentary about my new dress.*
+2. *(adj)* free, or without cost. *Complimentary tickets.*
+
+---
+
+**component** *(n)* a part of a machine or system.
+
+---
+
+**compose** *composing composed*
+1. *(v)* to write a piece of music, a poem, etc. composer *(n)*.
+2. *(v)* If something is composed of certain things, it is made from those things.
+
+---
+
+**compost** *(n)* a mixture of rotted plants that is added to soil to make it richer.
+
+---
