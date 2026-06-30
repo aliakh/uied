@@ -109,3 +109,43 @@
 **community** *communities* *(n)* a group of people who live in the same area or who have something in common with each other.
 
 ---
+
+**commuter** *(n)* someone who travels to work each day, usually by car or train. commute *(v)*.
+
+---
+
+**compact**
+1. *(kom-pakt)* *(adj)* cleverly designed to take up very little space.
+2. *(kom-pakt)* *(n)* a small, flat case containing face powder and a mirror.
+3. **compact disc** *(n)* a disc with music or information stored on it. The picture inset below shows the thin metal layer inside the plastic disc, with its pattern of pits and flats, which is read by a laser beam as the disc rotates.
+
+---
+
+**companion** *(n)* someone whom you spend time with, either through friendship or by chance.
+
+---
+
+**company** *companies*
+1. *(n)* a group of people who work together to produce or sell goods or services.
+2. *(n)* a group of actors or dancers who work together.
+3. *(n)* one or more guests. *We have company this weekend.*
+
+---
+
+**comparative**
+1. *(adj)* judged against other similar things. *This year's play was a comparative success.* comparatively *(adv)*.
+2. *(adj)* Comparative adjectives and adverbs are used when you compare two things or actions. *"Older" is the comparative of "old"; "more quickly" is the comparative of quickly.* comparative *(n)*.
+
+---
+
+**compare** *comparing compared*
+1. *(v)* to judge one thing against another and notice similarities and differences. comparison *(n)*.
+2. *(v)* to be as good as something or somebody else. *Our team compares favorably in the area.*
+
+---
+
+**compartment**
+1. *(n)* one of the small areas into which a railway carriage is divided.
+2. *(n)* a separate part of a container, used for keeping certain things. *My purse has a special compartment for stamps.*
+
+---
