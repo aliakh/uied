@@ -120,5 +120,60 @@
 **condition** *conditioning conditioned*
 1. *(n)* the general state of a person, an animal, or a thing. *My dog is in good condition. The hostages suffered terrible living conditions.*
 2. *(n)* a medical problem that continues over a long period of time. *A heart condition.*
+3. *(n)* something that is needed before another thing can happen or be allowed. *One condition of having a bike is that you always lock it up.*
+4. *(v)* to train someone to believe certain things or to behave in certain ways. **conditioning** *(n).*
+
+---
+
+**conditional** *(adj)* depending on something else. *I have a conditional place on the course.* **conditionally** *(adv).*
+
+---
+
+**conditioner** *(n)* a thick liquid that you rub into your hair after washing it, to make it strong and shiny.
+
+---
+
+**condolence** *(n)* an expression of sympathy for a person who is upset because a friend or relative has just died.
+
+---
+
+**condom** *(n)* a thin rubber covering that a man wears on his penis as a contraceptive.
+
+---
+
+**condominium** *(n) (US)* a block of flats or a housing estate in which each flat or house is owned by the person who lives in it, but the gardens, swimming pool, etc. are shared by all the occupants.
+
+---
+
+**conduct** *conducting conducted*
+1. *(kon-dukt) (v)* to organize something and carry it out. *The police conducted the murder enquiry.*
+2. *(kon-dukt) (v)* to stand in front of a group of musicians and direct their playing.
+3. *(kon-dukt) (v)* If something **conducts** heat, electricity, or sound, it allows them to pass through it. *Copper conducts electricity.* **conduction** *(n).*
+4. *(kon-dukt) (n)* behaviour.
+
+---
+
+**conductor**
+1. *(n)* someone who stands in front of a group of musicians and directs their playing.
+2. *(n)* someone who collects bus fares.
+3. *(n)* a substance that allows heat, electricity, or sound to travel through it. *Metal is a good conductor of heat.*
+
+---
+
+**cone**
+1. *(n)* an object or shape with a round base and a point at the top. **conical** *(adj).* See **shape**.
+2. *(n)* the hard, woody fruit of a pine tree.
+
+---
+
+**confectionery** *(n)* sweets and chocolates. **confectioner** *(n).*
+
+---
+
+**conference** *(n)* a formal meeting for discussing ideas and opinions.
+
+---
+
+**confess** *confesses confessing confessed (v)* to admit that you have done something wrong. **confession** *(n).*
 
 ---
