@@ -95,3 +95,39 @@
 **clothes** *(plural n)* things that you wear, for example, shirts and trousers. **clothe** *(v)*.
 
 ---
+
+**cloud** **clouding clouded**
+1 *(n)* a white or grey mass of water drops or ice crystals suspended in the air. **cloudy** *(adj)*.
+2 *(n)* a mass of smoke or dust. **cloudy** *(adj)*.
+3 *(v)* if something **clouds over**, it becomes less easy to see through.
+
+---
+
+**clover** *(n)* a small plant with pink or white flowers, and leaves divided into three parts. *Four-leaved clovers are rare and are believed to be lucky.*
+
+---
+
+**clown** **clowning clowned**
+1 *(n)* an entertainer who wears funny clothes, has a painted face, and tries to make people laugh.
+2 *(n)* someone who does silly or foolish things.
+3 *(v)* to do silly things in order to make people laugh. *Antonio is always clowning around.*
+
+---
+
+**club**
+1 *(n)* a group of people who meet regularly to enjoy a common interest.
+2 *(n)* a stick with a metal or wooden head used in the game of golf. *See* **golf**.
+3 *(n)* a thick, heavy stick used as a weapon. **club** *(v)*.
+4 **clubs** *(plural n)* one of the four suits in a pack of cards, with a black three-leafed symbol.
+
+---
+
+**clue** *(n)* something that helps you to find an answer to a question or a mystery.
+
+---
+
+**clump** **clumping clumped**
+1 *(n)* a group of trees or other plants growing together.
+2 *(v)* to walk slowly, with clumsy, noisy footsteps. *Edwin clumped up the stairs and woke everyone up.*
+
+---
