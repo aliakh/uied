@@ -119,5 +119,61 @@
 **crack** *cracking cracked*
 1 *(v)* to break or split, often with a loud, sharp noise. **crack** *(n)*
 2 *(n)* *(slang)* a form of the drug cocaine.
+3 *(v)* to find the answer to something. *At last, we cracked the problem.*
+4 *(informal)* When you **have a crack at something**, you try to do it.
+
+---
+
+**cracker**
+1 *(n)* a thin, plain biscuit, usually eaten with cheese.
+2 *(n)* a paper-covered tube that contains presents, and bangs when you pull it apart.
+
+---
+
+**crackle** *crackling crackled* *(v)* to make a noise like lots of small bangs. *The dry leaves crackled.*
+
+---
+
+**cradle** *cradling cradled*
+1 *(n)* a wooden bed for a young baby.
+2 *(v)* to hold something or someone in your arms very gently. *Rachel cradled the kitten in her arms.*
+3 *(n)* a protective frame. *A window-cleaning cradle.*
+
+---
+
+**craft**
+1 *(n)* work or a hobby where you make things with your hands. *Woodwork, pottery, and needlework are all crafts.*
+2 *(n)* a vehicle, such as a boat or plane.
+
+---
+
+**craftsman** *craftsmen* *(n)* someone skilled at making things with their hands. **craftsmanship** *(n)*
+
+---
+
+**crafty** *craftier craftiest* *(adj)* A crafty person is clever at tricking other people. **craftily** *(adv)*
+
+---
+
+**crag** *(n)* a steep, sharp rock. **craggy** *(adj)*
+
+---
+
+**cram** *cramming crammed* *(v)* to fit things into a small space. *I crammed all my clothes into a backpack.*
+
+---
+
+**cramp** *cramping cramped*
+1 *(n)* pain caused by a muscle tightening suddenly.
+2 *(v)* *(informal)* if someone or something **cramps your style**, they do not allow you to express yourself freely.
+
+---
+
+**cramped** *(adj)* If a place is cramped, there is not enough room in it for everyone or everything.
+
+---
+
+**crane** *craning craned*
+1 *(n)* a machine used for lifting heavy objects.
 
 ---
