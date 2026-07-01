@@ -157,5 +157,72 @@
 
 **custom**
 1 *(n)* a tradition. **customary** *(adj)*
+2 *(n)* something that you do regularly. *A family custom.* **customary** *(adj)*
+3 **customs** *(n)* a checkpoint at country borders, ports, or airports where officials make sure that you are not carrying anything illegal.
+
+---
+
+**customer** *(n)* A shop's **customers** are the people who buy things from it.
+
+---
+
+**customize** or **customise** *customizing customized* *(v)* to change something to suit your needs and to make it look unusual. *Garth customized his car.*
+
+---
+
+**cut** *cutting cut*
+1 *(v)* to use a sharp instrument, such as scissors or a knife, to divide, shorten, or shape something.
+2 *(n)* a skin wound.
+3 *(v)* to reduce something. *The shop is cutting its prices.* **cut** *(n)*
+4 *(v)* If you are **cut off** from other people, you cannot contact them.
+5 *(v)* If you **cut down** on something, like eating sweets, you do it less often.
+6 *(v)* If a person or an organization **cuts back**, they reduce the amount of money that they spend. **cutback** *(n)*
+
+---
+
+**cute** *cuter cutest* *(adj)* charming and attractive.
+
+---
+
+**cutlery** *(singular n)* knives, forks, and spoons.
+
+---
+
+**cutting**
+1 *(n)* something cut off or cut out of something else. *A plant cutting. A newspaper cutting.*
+2 *(adj)* If you make a **cutting** remark, you say something hurtful.
+
+---
+
+**cycle** *(sy-kul) cycling cycled*
+1 *(n)* a series of events which are repeated over and over again. *The cycle of the seasons.*
+2 *(n)* a bicycle. *See* **bicycle**
+3 *(v)* to ride a bicycle. **cyclist** *(n)*
+
+---
+
+**cyclone** *(sy-klone) (n)* a very strong wind that blows in a spiral.
+
+---
+
+**cygnet** *(sig-net) (n)* a young swan. *See* **swan**
+
+---
+
+**cylinder** *(sill-in-der)*
+1 *(n)* a shape with circular ends and straight sides. *Most drink cans are cylinders.* **cylindrical** *(adj)*. *See* **shape**
+2 *(n)* a tube-shaped container in an engine. *See* **engine**
+
+---
+
+**cynical** *(sin-ik-ul) (adj)* Someone who is **cynical** always expects the worst to happen, and thinks that anything people do is based on selfishness. **cynic** *(n)*, **cynicism** *(n)*, **cynically** *(adv)*
+
+---
+
+**cytoplasm** *(n)* the contents of a cell, apart from its nucleus. *See* **cell**
+
+---
+
+**czar** or **tsar** *(zar) (n)* a Russian king. *The last czar was murdered in 1917.*
 
 ---
