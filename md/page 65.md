@@ -80,3 +80,63 @@
 **corrode** *corroding corroded (v)* to eat away at something. *Water corrodes metal and makes it rust.* **corrosion** *(n),* **corrosive** *(adj).*
 
 ---
+
+**corrugated** *(adj)* ridged, or rippled. *Corrugated iron.*
+
+---
+
+**corrupt** *corrupting corrupted*
+1. *(v)* to make someone bad or dishonest. **corrupt** *(adj).*
+2. *(adj)* If computer data is **corrupt**, it contains errors which make it useless. **corrupt** *(n).*
+
+---
+
+**cosmetic**
+1. **cosmetics** *(plural n)* beauty products such as lipstick or mascara.
+2. *(adj)* changing the way that a person or a thing looks. *Cosmetic surgery.*
+
+---
+
+**cosmic** *(adj)* to do with the universe. *Cosmic laws.* **cosmically** *(adv).*
+
+---
+
+**cosmopolitan** *(adj)* If you are **cosmopolitan**, you feel at home in more than one country.
+
+---
+
+**cosmos** *(n)* the universe.
+
+---
+
+**cost** *costing cost*
+1. *(v)* to have a certain price. *How much does this cost?* **cost** *(n).*
+2. *(v)* to make someone give up or lose something. *The battle cost many lives.* **cost** *(n).*
+
+---
+
+**co-star** *(n)* an actor who appears in a film with another actor of equal importance. **co-star** *(v).*
+
+---
+
+**costly** *costlier costliest (adj)* expensive. *Costly gifts.*
+
+---
+
+**costume**
+1. *(n)* clothes worn by actors.
+2. *(n)* clothes worn by people at a particular time in history.
+
+---
+
+**cosy** *cosier cosiest (adj)* comfortable, or snug. *The house was small but cosy.* **cosiness** *(n),* **cosily** *(adv).*
+
+---
+
+**cot** *(n)* a small bed for a baby, with high sides.
+
+---
+
+**cottage** *(n)* a small house, usually in the country.
+
+---
