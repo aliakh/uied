@@ -124,3 +124,74 @@
 4. *(adj) (informal)* fashionable.
 
 ---
+
+**co-operate** *co-operating co-operated (v)* to work together. **co-operation** *(n).*
+
+---
+
+**co-operative** *(adj)* If you are **co-operative**, you work well with other people. **co-operativeness** *(n).*
+
+---
+
+**co-ordinate** *co-ordinating co-ordinated*
+1. *(v)* to organize activities or people so that they all work together. **co-ordination** *(n),* **co-ordinator** *(n).*
+2. *(n)* a number used to show the position of a point on a line or map.
+
+**co-ordinated**
+1. *(adj)* If you are well **co-ordinated**, you have good control over how you move your arms and legs.
+2. *(adj)* **Co-ordinated** clothes go well together.
+
+---
+
+**cope** *coping coped (v)* to deal with something successfully.
+
+---
+
+**copper**
+1. *(n)* a reddish-brown metal.
+2. *(n)* a reddish-brown colour. **copper** *(adj),* **coppery** *(adj).*
+
+---
+
+**copy** *copies copying copied*
+1. *(v)* to do the same as someone else.
+2. *(n)* A **copy** is made to look or sound exactly the same as something else.
+3. *(v)* to make a copy of something.
+
+---
+
+**copyright** *(n)* If someone owns the **copyright** on a book, song, etc., people must ask for their permission before they copy or perform them.
+
+---
+
+**coral** *(singular n)* sea creatures, closely related to sea anemones, whose skeletons remain after they die. *Coral can be hard or soft.*
+
+---
+
+**cord** *(n)* a length of string or rope.
+
+---
+
+**cordial**
+1. *(n)* a sweet, fruit drink. *Lime cordial.*
+2. *(adj)* friendly. **cordially** *(adv).*
+
+---
+
+**cordon** *(n)* a line of people or objects used to control crowds. *A police cordon blocked the street.*
+
+---
+
+**core** *(n)* the centre of something, such as the Earth or an apple.
+
+---
+
+**cork** *(n)* soft bark used as a stopper in bottles or to make mats, tiles, etc.
+
+---
+
+**corkscrew**
+1. *(n)* a tool used for pulling corks out of bottles.
+2. *(adj)* spiralling, or turning in circles. *Corkscrew curls.*
+
+---
