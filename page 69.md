@@ -79,5 +79,83 @@
 
 **curious**
 1 *(adj)* eager to find out. **curiosity** *(n)*, **curiously** *(adv)*
+2 *(adj)* strange. *A curious creature.* **curiosity** *(n)*, **curiously** *(adv)*
+
+---
+
+**curl** *curling curled*
+1 *(n)* a curved lock of hair. **curly** *(adj)*
+2 *(v)* to bend into a spiral shape.
+
+---
+
+**currant** *(n)* a dried grape.
+
+---
+
+**currency** *(n)* the money used in a country.
+
+---
+
+**current**
+1 *(adj)* happening now. **currently** *(adv)*
+2 *(n)* the movement of water in a river or an ocean, or of electricity through a wire.
+
+---
+
+**current affairs** *(plural n)* important events that are happening now and are often discussed on television or in newspapers.
+
+---
+
+**curriculum** *curricula (n)* a programme of study for a school or college.
+
+---
+
+**curry** *curries (n)* a hot, spicy meal of meat or vegetables, served with rice.
+
+---
+
+**curse** *cursing cursed*
+1 *(n)* an evil spell intended to harm someone.
+2 *(v)* to swear.
+
+---
+
+**cursor** *(n)* a small indicator which shows your position on a computer screen.
+
+---
+
+**curtains** *(plural n)* pieces of material that are pulled across a window or a stage to cover it.
+
+---
+
+**curtsy** or **curtsey** *curtsies curtsying curtsied* *(v)* to bend slightly at the knee, with one leg crossed behind the other. Women and girls curtsy to show respect or to accept applause. **curtsy** *(n)*
+
+---
+
+**curve** *curving curved*
+1 *(v)* to bend or turn gently. *The path curved towards the cottage.*
+2 *(n)* a bend in something. **curved** *(adj)*, **curvy** *(adj)*
+
+---
+
+**cushion** *cushioning cushioned*
+1 *(n)* a type of pillow used to make chairs or sofas more comfortable.
+2 *(v)* to soften the effect of something. *The mattress cushioned her fall.*
+
+---
+
+**custard** *(n)* a sweet, yellow sauce made from milk, eggs, and sugar, or from milk, sugar, and custard powder.
+
+---
+
+**custody**
+1 *(n)* If someone has **custody** of a child, they have the legal right to look after that child. **custodial** *(adj)*
+2 If someone is **taken into custody**, they are arrested by the police. **custodial** *(adj)*
+
+---
+
+**custom**
+1 *(n)* a tradition. **customary** *(adj)*
 
 ---
