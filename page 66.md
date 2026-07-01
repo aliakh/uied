@@ -75,3 +75,49 @@
 **courtesy** *(n)*, **courteously** *(adv)*
 
 ---
+
+**courtship**
+1 *(n)* attempts by an animal to attract a mate.
+2 *(n)* *(old-fashioned)* attempts by a man to persuade a woman to become his wife.
+
+---
+
+**cousin** *(n)* Your cousin is the child of your uncle or aunt.
+
+---
+
+**cover** *covering covered*
+1 *(v)* to put something over something else. *Cover the table with a cloth.* **cover** *(n)*
+2 *(v)* to teach or study something thoroughly. *Have you covered that topic?* **coverage** *(n)*
+3 *(v)* to travel a certain distance. *We covered twenty miles before nightfall.*
+4 *(v)* to include or provide for. *Does your insurance cover storm damage?*
+
+---
+
+**cow**
+1 *(n)* an adult female farm animal that produces milk. *See* **cud**
+2 *(n)* an adult female seal or whale.
+
+---
+
+**coward** *(n)* someone who is easily scared and keeps away from frightening situations. **cowardice** *(n)*, **cowardly** *(adj)*
+
+---
+
+**cowboy** *(n)* a man who rears cattle, especially in the USA. *See* **rodeo**
+
+---
+
+**cox** *coxes* *(n)* someone who steers a rowing boat and gives orders to its crew. **cox** *(v)*
+
+---
+
+**crab** *(n)* a creature with a hard shell, eight legs, and two pincers.
+
+---
+
+**crack** *cracking cracked*
+1 *(v)* to break or split, often with a loud, sharp noise. **crack** *(n)*
+2 *(n)* *(slang)* a form of the drug cocaine.
+
+---
