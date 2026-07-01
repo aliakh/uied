@@ -1,5 +1,3 @@
-# Cc
-
 **confetti** *(plural n)* small pieces of coloured paper that are thrown over the bride and groom after a wedding.
 
 ---

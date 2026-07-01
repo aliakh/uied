@@ -64,3 +64,65 @@
 2. *(v)* If you **consult** a book or a map, you use it to find information.
 
 ---
+
+**consultant**
+1. *(n)* a senior doctor with specialist knowledge in one area of medicine.
+2. *(n)* a person with a lot of knowledge and experience of something, who gives professional advice to others.
+
+---
+
+**consume** *consuming consumed*
+1. *(v)* to eat or drink something.
+2. *(v)* to use something up. **consumption** *(n).*
+3. *(v)* If a fire **consumes** something, it destroys it.
+
+---
+
+**consumer** *(n)* someone who buys goods, eats food, or uses services.
+
+---
+
+**contact** *contacting contacted*
+1. When people are **in contact**, they touch each other.
+2. If you are **in contact** with someone, you write or talk to them.
+3. *(v)* to get in touch with someone.
+
+**contact lens** *contact lenses (n)* a small plastic lens that fits closely over your eyeball to improve your eyesight.
+
+---
+
+**contagious** *(adj)* A **contagious** disease can be caught by touching someone or something already infected with it.
+
+---
+
+**contain** *containing contained*
+1. *(v)* When an object **contains** something, it holds that thing inside itself or that thing forms a part of it. *The chest contained the treasure. This book contains many stories.* **container** *(n).*
+2. *(v)* to keep an emotion under control. *I tried to contain my laughter.*
+
+---
+
+**contaminated** *(adj)* If something is **contaminated**, it has been made dirty or impure. *Contaminated drinking water.* **contamination** *(n).*
+
+---
+
+**contemplate** *contemplating contemplated*
+1. *(v)* to think seriously about something. *Matthew contemplated leaving college.* **contemplation** *(n).*
+2. *(v)* to look at something thoughtfully. *Augusta contemplated the view.* **contemplation** *(n).*
+
+---
+
+**contemporary** *contemporaries*
+1. *(adj)* up-to-date, or modern.
+2. *(adj)* If an event is **contemporary** with another event, they both happened at the same time. *A contemporary account of the war.*
+3. *(n)* Your **contemporaries** are people of about the same age as you.
+
+---
+
+**contempt** *(n)* total lack of respect. **contemptuous** *(adj).*
+
+---
+
+**contend** *contending contended*
+1. *(v)* to compete. *The two teams contended for the cup.* **contender** *(n).*
+
+---
