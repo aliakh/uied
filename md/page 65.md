@@ -140,3 +140,48 @@
 **cottage** *(n)* a small house, usually in the country.
 
 ---
+
+**cottage cheese** *(n)* cheese made from curdled skimmed milk.
+
+---
+
+**cotton**
+1. *(n)* soft, thin material made from the cotton plant and used to make clothes. **cotton** *(adj).*
+2. *(n)* thread used for sewing.
+
+---
+
+**cotton wool** *(n)* soft, raw cotton which you use to put cream on your skin.
+
+---
+
+**couch** *couches*
+1. *(n)* a long, soft seat with arms and a back, and room for two or more people.
+2. **couch potato** *(n) (slang)* someone who spends most of their time watching television rather than being active.
+
+---
+
+**cough** *(koff) coughing coughed*
+1. *(v)* to make a sudden, harsh noise as you force air out of your lungs. **cough** *(n).*
+2. *(n)* an illness that makes you cough.
+
+---
+
+**council** *(n)* a group of people chosen to look after the interests of a town, county, or organization.
+
+---
+
+**council tax** *(n)* a British tax that pays for local services.
+
+---
+
+**counsel** *counselling counselled (v)* to listen to people's problems and give advice. **counselling** *(n),* **counsellor** *(n).*
+
+---
+
+**count** *counting counted*
+1. *(v)* to say numbers in order.
+2. *(v)* to work out how many there are of something. *I counted the planes as they took off.*
+3. *(v)* If you can **count on** something or someone, you can rely on them.
+
+---
