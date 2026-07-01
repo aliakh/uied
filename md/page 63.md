@@ -124,5 +124,61 @@
 
 **contend** *contending contended*
 1. *(v)* to compete. *The two teams contended for the cup.* **contender** *(n).*
+2. *(v)* to try to deal with a difficulty. *Lucy has had a lot to contend with since her parents split up.*
+
+---
+
+**content** *contenting contented*
+1. *(adj)* happy and satisfied. **contented** *(adj),* **contentedly** *(adv).*
+2. *(v)* If you **content** yourself with something, you are satisfied with it.
+
+---
+
+**contents** *(plural n)* the things that are inside something or form part of something.
+
+---
+
+**contest** *contesting contested*
+1. *(kon-test) (n)* a competition.
+2. *(kon-test) (v)* to compete or fight for something. **contestant** *(n).*
+3. *(kon-test) (v)* to claim that something is wrong. *Tarquin contested the judges' decision.*
+
+---
+
+**context**
+1. *(n)* The **context** of a word or phrase is the writing around it which helps you to understand its meaning.
+2. If you put an event or an action in **context**, you take into account all the things that affect it.
+
+---
+
+**continent**
+1. *(n)* one of the seven large land masses of the Earth. **continental** *(adj).*
+2. **the Continent** *(n)* the mainland of Europe. **continental** *(adj).*
+
+---
+
+**continual** *(adj)* happening again and again. **continually** *(adv).*
+
+---
+
+**continue** *continuing continued (v)* to go on doing something. **continuation** *(n).*
+
+---
+
+**continuous** *(adj)* When something is **continuous**, it does not stop. *A continuous line.* **continuously** *(adv).*
+
+---
+
+**contort** *contorting contorted (v)* to twist something out of its usual shape. **contortion** *(n),* **contorted** *(adj).*
+
+---
+
+**contour**
+1. *(n)* an outline.
+2. *(n)* a line joining points of equal height on a map.
+
+---
+
+**contraceptive** *(n)* a device or drug that prevents a woman from becoming pregnant. **contraception** *(n).*
 
 ---
