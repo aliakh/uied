@@ -136,3 +136,55 @@
 2 *(v)* to collapse. **crumpled** *(adj)*
 
 ---
+
+**crunch** *crunches crunching crunched* *(v)* If you **crunch** something, you crush it noisily. *Ali crunched her carrot.* **crunchy** *(adj)*
+
+---
+
+**crush** *crushes crushing crushed*
+1 *(v)* to squash something under a heavy weight.
+2 *(v)* *(slang)* If you have a **crush** on someone, you like them very much, but usually only for a short time.
+
+---
+
+**crust**
+1 *(n)* the crisp, outer case of bread or pastry. **crusty** *(adj)*
+2 *(n)* The Earth's **crust** is its thin, outer layer of land and sea. *See* **Earth**
+
+---
+
+**crutch** *crutches* *(n)* one of two, long sticks with padded tops, used to help support someone with injured legs.
+
+---
+
+**cry** *cries crying cried*
+1 *(v)* to weep tears. **cry** *(n)*
+2 *(v)* to shout out. **cry** *(n)*
+
+---
+
+**crystal** *(n)* a hard, glassy piece of rock with many sides. Crystals are formed when minerals boil, then cool and solidify. **crystallize** *(v)*, **crystalline** *(adj)*. *See* **quartz**
+
+---
+
+**cub** *(n)* a young lion, wolf, bear, etc.
+
+---
+
+**cube** *cubing cubed*
+1 *(n)* a three-dimensional shape with six square faces. *A dice is a cube.* **cubic** *(adj)*. *See* **shape**
+2 *(v)* to multiply a number by itself twice. *3 cubed is 3 x 3 x 3.*
+
+---
+
+**cubicle** *(n)* a small, private area in a changing room or public toilet.
+
+---
+
+**cucumber** *(n)* a long, green vegetable with a watery centre. *See* **vegetable**
+
+---
+
+**cud** *(n)* undigested food that cows bring up from the first part of their stomachs to chew again. *Grass is formed into cud balls in the rumen, returned to the mouth for chewing and passed into the reticulum where any stones are trapped. The pulp can then be digested.*
+
+---
