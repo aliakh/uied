@@ -70,3 +70,77 @@
 **creation** *(n)* something that has been made.
 
 ---
+
+**creative** *(adj)* If you are **creative**, you use your imagination and are good at thinking of new ideas. **creativity** *(n)*, **creatively** *(adv)*
+
+---
+
+**creature** *(n)* an animal, bird, or insect.
+
+---
+
+**crèche** *(rhymes with fresh) (n)* a place where babies and young children can be looked after safely while their parents are busy.
+
+---
+
+**credible** *(adj)* If something or someone is **credible**, you can believe in them or trust them. **credibility** *(n)*
+
+---
+
+**credit**
+1 If you buy something **on credit**, you pay for it later.
+2 If you or your bank account are **in credit**, you have money.
+3 *(n)* praise or acknowledgement. *No one gave me credit for my hard work.*
+4 *(plural n)* The **credits** at the end of a film or television programme tell you who acted in it and made it.
+
+---
+
+**creek**
+1 *(n)* a narrow inlet where the sea flows inland for a long way.
+2 *(n)* a small stream.
+
+---
+
+**creep** *creeping crept*
+1 *(v)* to move very slowly and quietly.
+2 *(v)* to crawl along the ground.
+3 *(n)* *(slang)* an unpleasant person.
+4 *(informal)* If something or someone gives you the **creeps**, they are unpleasant and frightening. **creepy** *(adj)*
+
+---
+
+**cremate** *cremating cremated* *(v)* to burn a dead body. **cremation** *(n)*, **crematorium** *(n)*
+
+---
+
+**crescent**
+1 *(n)* a curved shape.
+2 *(n)* a row of houses, built in a curve.
+
+---
+
+**cress** *(n)* a green plant with tiny leaves which you can eat in sandwiches and salads.
+
+---
+
+**crest**
+1 *(n)* a comb or tuft of feathers on a bird's head. **crested** *(adj)*
+2 *(n)* the top of something, such as a wave or a hill.
+3 *(n)* a design that represents a noble family, a town, or an organization. *We have a dragon as our school crest.*
+4 *(n)* part of a coat of arms. *See* **coat of arms**
+
+---
+
+**crevice** *(n)* a crack or split in a rock.
+
+---
+
+**crew** *(n)* a team of people who work together, especially on a ship.
+
+---
+
+**crib** *cribbing cribbed*
+1 *(n)* a small baby's bed.
+2 *(v)* *(informal)* to copy someone else's work and pretend it is your own.
+
+---
