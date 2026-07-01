@@ -144,3 +144,54 @@
 2 *(v)* *(informal)* to copy someone else's work and pretend it is your own.
 
 ---
+
+**cricket**
+1 *(n)* a game played by two teams of eleven players, with two bats, a ball, and two sets of stumps. **cricketer** *(n)*
+2 *(n)* a jumping insect similar to a grasshopper.
+
+---
+
+**crime** *(n)* something that is against the law.
+
+---
+
+**criminal**
+1 *(n)* someone who commits a crime. **criminally** *(adv)*
+2 *(adj)* to do with crime. *A criminal investigation.*
+
+---
+
+**crimson** *(n)* a deep red colour. **crimson** *(adj)*
+
+---
+
+**cripple** *crippling crippled*
+1 *(n)* someone who is lame or disabled. **crippled** *(adj)*
+2 *(v)* to stop someone or something from moving or working properly. *The company was crippled by strikes.*
+
+---
+
+**crisis** *crises*
+1 *(n)* a time of danger and difficulty.
+2 *(n)* a turning point or decision point.
+
+---
+
+**crisp** *crisper crispest*
+1 *(n)* a very thin slice of fried potato with salt or other flavours added.
+2 *(adj)* hard and easily broken. *A crisp piece of toast.* **crispy** *(adj)*
+3 *(adj)* fresh, dry, and cool. *A crisp winter morning.* **crisply** *(adv)*
+
+---
+
+**critical**
+1 *(adj)* If you are **critical** of someone or something, you find faults in them. **critically** *(adv)*
+2 *(adj)* important, or serious. *A critical operation.* **critically** *(adv)*
+
+---
+
+**criticize** or **criticise** *criticizing criticized*
+1 *(v)* to tell someone what they have done wrong. **criticism** *(n)*
+2 *(v)* to point out the good and bad parts in a book, film, etc. **critic** *(n)*, **criticism** *(n)*
+
+---
