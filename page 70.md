@@ -62,3 +62,73 @@
 2. *(v)* to curse someone or something. **damn!** *(interject)*
 
 ---
+
+**damp** *damper dampest (adj)* slightly wet, or moist. **dampness** *(n).*
+
+---
+
+**damsel** *(n) (old-fashioned)* a young woman.
+
+---
+
+**dance** *dancing danced*
+1. *(v)* to move in time to music. **dancer** *(n),* **dancing** *(n).*
+2. *(n)* a ball, or a disco.
+3. *(n)* the movements that go with a particular kind of music. *Country dance.*
+
+---
+
+**dandruff** *(n)* small, white flakes of dead skin found in some people's hair.
+
+---
+
+**danger**
+1. *(n)* a situation that is not safe. *The children are in danger.*
+2. *(n)* something or someone that is not safe. *George's bus is a danger on the road.* **dangerous** *(adj),* **dangerously** *(adv).*
+3. **danger!** *(interject)* a warning word.
+
+---
+
+**dangle** *dangling dangled (v)* to swing or hang down. *Maurice dangled from the drainpipe.*
+
+---
+
+**dank** *danker dankest (adj)* unpleasantly wet or damp. *The cellar was cold and dank.*
+
+---
+
+**dappled** *(adj)* marked with spots, or with patches of light and dark. *A dappled pony.*
+
+---
+
+**dare** *daring dared*
+1. *(v)* to challenge someone to do something. **dare** *(n).*
+2. *(v)* to be brave enough to do something. *Do you dare to dive into the river?* **daring** *(adj),* **daringly** *(adv).*
+
+---
+
+**daredevil** *(n)* someone who takes risks and does dangerous things.
+
+---
+
+**dark** *darker darkest*
+1. *(adj)* without light. *A dark room.*
+2. *(adj)* containing more black than white. *Dark blue.*
+3. *(n)* sunset. *I'm not allowed out after dark.*
+
+---
+
+**darkroom** *(n)* a room with special equipment and chemicals, where you can develop photographs.
+
+---
+
+**darn** *darning darned (v)* to mend a hole in a piece of clothing by sewing across it. **darning** *(n).*
+
+---
+
+**dart** *darting darted*
+1. *(n)* a pointed object that you throw in the game of darts.
+2. *(v)* to move forward suddenly. *Stefan darted out into the traffic.*
+3. **darts** *(singular n)* a game in which players score points by throwing darts at a board with numbers on it.
+
+---
