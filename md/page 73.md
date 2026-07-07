@@ -126,3 +126,71 @@
 2. *(n)* a private place where you can work or play.
 
 ---
+
+**denim** *(n)* strong, cotton material used for making jeans. **denim** *(adj).*
+
+---
+
+**denominator** *(n)* in fractions, the **denominator** is the number under the line which shows how many equal parts the whole number can be divided into. *In the fraction ⅜, 8 is the denominator.*
+
+---
+
+**denounce** *denouncing denounced (v)* to say in public that someone has done something wrong.
+
+---
+
+**dense** *denser densest*
+1. *(adj)* thick, or crowded. *Dense fog.* **denseness** *(n).* **densely** *(adv).*
+2. *(adj) (informal)* slow to understand. **denseness** *(n).* **densely** *(adv).*
+
+---
+
+**density** *(n)* the **density** of an object is how heavy or light it is for its size. Density is measured by dividing an object's mass by its volume.
+
+---
+
+**dent** *denting dented (v)* to damage something by making a hollow in it. **dent** *(n).*
+
+---
+
+**dental** *(adj)* to do with your teeth. *Dental hygiene.*
+
+---
+
+**dentist** *(n)* someone who is trained to check and treat teeth.
+
+---
+
+**denture**
+1. *(n)* a plate that fits into your mouth, with a false tooth or false teeth attached to it.
+2. **dentures** *(plural n)* a set of false teeth.
+
+---
+
+**deny** *denies denying denied*
+1. *(v)* to say that something is not true. *Laura denied that she had taken the buns.* **denial** *(n).*
+2. *(v)* to stop someone having something or going somewhere. *The guards denied us entry to the hall.*
+
+---
+
+**deodorant** *(n)* a substance used to hide the smell of sweat and to make your body smell fresher.
+
+---
+
+**depart** *departing departed (v)* to leave, especially to go on a journey. **departure** *(n).*
+
+---
+
+**department** *(n)* a part of a shop, hospital, university, etc. **departmental** *(adj).*
+
+---
+
+**depend** *depending depended*
+1. *(v)* if something **depends** on something else, it is related to it or influenced by it in some way. *The result depends on the skill of our team.* **dependent** *(adj).*
+2. *(v)* to rely on someone or something. *We're depending on your help.* **dependence** *(n).* **dependable** *(adj).* **dependent** *(adj).*
+
+---
+
+**dependant** *(n)* someone who is looked after and supported by somebody else.
+
+---
