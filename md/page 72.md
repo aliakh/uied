@@ -119,3 +119,68 @@
 **deformed** *(adj)* if someone or something is **deformed**, they are a strange shape. **deformity** *(n).*
 
 ---
+
+**defraud** *defrauding defrauded (v)* to cheat someone out of money, property, etc.
+
+---
+
+**defrost** *defrosting defrosted*
+1. *(v)* to allow frozen food to thaw out completely.
+2. *(v)* to remove ice from a refrigerator or freezer.
+
+---
+
+**deft** *defter deftest (adj)* skilful, quick, and neat. *Deft footwork.* **deftness** *(n).* **deftly** *(adv).*
+
+---
+
+**defuse** *defusing defused*
+1. *(v)* when someone **defuses** a bomb, they make it safe so it cannot explode.
+2. *(v)* if a situation is **defused**, it is made calmer.
+
+---
+
+**defy** *defies defying defied*
+1. *(v)* if you **defy** a person or a rule, you stand up to them and refuse to obey them.
+2. *(v)* to challenge someone, or to dare them to do something. *I defy you to eat all that steak!*
+
+---
+
+**degenerate** *degenerating degenerated (v)* to become worse. *The lesson degenerated into a riot.*
+
+---
+
+**degrading** *(adj)* if a situation or an activity is **degrading**, it makes you feel worthless or disgraced. **degradation** *(n).* **degrade** *(v).*
+
+---
+
+**degree**
+1. *(n)* a unit for measuring temperature or angles. *The symbol for a degree is °. The temperature today reached 20° Celsius. A 90° angle.*
+2. *(n)* a qualification given by a university or other institute of higher education.
+
+---
+
+**dehydrated**
+1. *(adj)* if you are **dehydrated**, you do not have enough water in your body. **dehydration** *(n).* **dehydrate** *(v).*
+2. *(adj)* **Dehydrated** food has had the water removed from it. **dehydration** *(n).* **dehydrate** *(v).*
+
+---
+
+**deign** *(rhymes with pain) deigning deigned (v)* if you **deign** to do something, you lower yourself to do it. *The princess deigned to let the peasant kiss her hand.*
+
+---
+
+**deity** *(day-it-ee) deities (n)* a god or goddess.
+
+---
+
+**dejected** *(adj)* sad and depressed. **dejection** *(n).* **dejectedly** *(adv).*
+
+---
+
+**delay** *delaying delayed*
+1. *(v)* to be late. *Don't delay or we'll miss the bus!* **delay** *(n).*
+2. *(v)* to make someone late. *The accident delayed me.*
+3. *(v)* to put something off until later. *Sara delayed doing her homework until the last minute.*
+
+---
