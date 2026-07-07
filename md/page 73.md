@@ -64,5 +64,65 @@
 
 **demand** *demanding demanded*
 1. *(v)* to claim something, or to ask for something firmly. *We demand justice!*
+2. *(n)* if there is a **demand** for something, many people want it.
+
+---
+
+**demanding**
+1. *(adj)* if somebody is **demanding**, they are always wanting things and are hard to please.
+2. *(adj)* a **demanding** job requires a lot of effort.
+
+---
+
+**demeanour** *(n)* the way that you behave.
+
+---
+
+**demo** *(n) (informal)* a meeting or march to protest about something. *Demo is short for demonstration.*
+
+---
+
+**democracy** *democracies*
+1. *(n)* a way of governing a country, in which the people choose their leaders in elections.
+2. *(n)* a country that has an elected government.
+
+---
+
+**democrat**
+1. *(n)* someone who agrees with the system of democracy.
+2. **Democrat** *(n)* a supporter of the Democratic Party in the USA.
+
+---
+
+**democratic**
+1. *(adj)* a **democratic** system is one where all people have equal rights. **democratically** *(adv).*
+2. **Democratic Party** *(n)* the name of one of the main political parties in the USA.
+
+---
+
+**demolish** *demolishes demolishing demolished*
+1. *(v)* to knock down something and break it up. *The builders demolished the old school.* **demolition** *(n).*
+2. *(v) (informal)* to eat something quickly. *Will demolished his lunch in five minutes.*
+
+---
+
+**demon** *(n)* a devil, or an evil spirit. **demonic** *(adj).*
+
+---
+
+**demonstrate** *demonstrating demonstrated*
+1. *(v)* to show other people how to do something or how to use something. *Alice demonstrated how to use the computer.* **demonstration** *(n).*
+2. *(v)* to join together with other people to protest against something. **demonstration** *(n).* **demonstrator** *(n).*
+3. *(v)* to show something clearly. *Alex demonstrated how angry he felt by shouting loudly.* **demonstrative** *(adj).*
+
+---
+
+**demoralized** or **demoralised** *(adj)* if you are **demoralized**, you feel depressed and hopeless.
+
+---
+
+**den**
+1. *(n)* the home of a wild animal, such as a lion.
+2. *(n)* a private place where you can work or play.
 
 ---
