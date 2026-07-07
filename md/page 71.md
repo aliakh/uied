@@ -149,3 +149,66 @@
 **decipher** *deciphering deciphered (v)* to work out something that is written in code or is hard to understand. *I can't decipher Jim's handwriting.* **decipherable** *(adj).*
 
 ---
+
+**decision** *(n)* if you make a **decision**, you make up your mind about something.
+
+---
+
+**decisive** *(adj)* if you are **decisive**, you make choices quickly and easily. **decisively** *(adv).*
+
+---
+
+**deck**
+1. *(n)* the floor of a boat or ship. *See ship.*
+2. *(n) (US)* a platform with railings on the outside of a building, usually high up. *Balcony, UK.*
+
+---
+
+**declare** *declaring declared*
+1. *(v)* to say something firmly. *Justin declared that he would never eat meat again.* **declaration** *(n).*
+2. *(v)* to announce something formally. *The government declared that the war was over.* **declaration** *(n).*
+3. *(v)* when you **declare** in a cricket match, you end your team's innings.
+
+---
+
+**decline** *declining declined*
+1. *(v)* to turn something down, or to refuse something. *I'm afraid we must decline your invitation.*
+2. *(v)* to get worse, or to get smaller. *Audrey's health began to decline. The population of our village is declining.* **decline** *(n).*
+
+---
+
+**decode** *decoding decoded (v)* to turn something that is written in code into ordinary language.
+
+---
+
+**decompose** *decomposing decomposed (v)* to rot, or to decay. **decomposition** *(n).*
+
+---
+
+**decongestant** *(n)* a drug that unblocks your nose, chest, etc. when you have a cold. **decongestion** *(n).*
+
+---
+
+**decontaminate** *decontaminating decontaminated (v)* to remove radioactive or other harmful substances from something or some place. **decontamination** *(n).*
+
+---
+
+**decorate** *decorating decorated*
+1. *(v)* if you **decorate** something, you add things to it to make it prettier. **decoration** *(n).* **decorative** *(adj).*
+2. *(v)* if you **decorate** a room or house, you paint it or put wallpaper on it. **decoration** *(n).* **decorator** *(n).*
+
+---
+
+**decrease** *decreasing decreased*
+1. *(v)* to become less, smaller, or fewer. *I have noticed a marked decrease in enthusiasm for this project.* **decreasing** *(adj).* **decreasingly** *(adv).*
+2. *(n)* a loss, or the amount by which something decreases.
+
+---
+
+**decree** *decreeing decreed (v)* to give an order that must be obeyed. *The teacher decreed that there would be no more cheating.* **decree** *(n).*
+
+---
+
+**decrepit** *(adj)* old and feeble.
+
+---
