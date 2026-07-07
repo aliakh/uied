@@ -57,5 +57,65 @@
 **defend** *defending defended*
 1. *(v)* to protect something or someone from harm. **defence** *(n).*
 2. *(v)* to support someone or some idea by arguing. *The strikers defended their action.* **defence** *(n).*
+3. *(v)* to try to stop goals being scored in football, hockey, netball, etc. **defence** *(n).* **defender** *(n).*
+
+---
+
+**defendant** *(n)* the person in a court case who has been accused of a crime.
+
+---
+
+**defensive**
+1. *(adj)* to do with defending yourself or others. *The players took defensive action.*
+2. *(adj)* if you are **defensive**, you feel and act as if someone is attacking or criticising you. **defensiveness** *(n).* **defensively** *(adv).*
+
+---
+
+**defer** *deferring deferred (v)* to put something off until later. *The outing will be deferred until next term.*
+
+---
+
+**defiant** *(adj)* if you are **defiant**, you stand up to someone or to some organisation and refuse to obey them. **defiance** *(n).* **defiantly** *(adv).*
+
+---
+
+**deficient** *(adj)* lacking something. *My diet is deficient in vitamins.* **deficiency** *(n).*
+
+---
+
+**deficit** *(def-er-sit) (n)* if an account shows a **deficit**, more money has been spent than has come in.
+
+---
+
+**define** *defining defined (v)* to explain or describe something exactly.
+
+---
+
+**definite**
+1. *(adj)* certain. *Do we have a definite date for the trip?* **definitely** *(adv).*
+2. *(adj)* clear. *These drawings have a very definite outline.*
+3. **definite article** *(n)* the grammatical term for "the".
+
+---
+
+**definition** *(n)* an explanation of what a word or an idea means. *This dictionary has 20,000 definitions.*
+
+---
+
+**deflate** *deflating deflated*
+1. *(v)* to let the air out of something like a tyre or balloon. **deflation** *(n).*
+2. *(v)* to make someone feel less confident and important. *The teacher's comments deflated Don.*
+
+---
+
+**deflect** *deflecting deflected (v)* to make something go in a different direction. *The ball was deflected off the post into the goal.* **deflection** *(n).*
+
+---
+
+**deforestation** *(n)* the cutting down of forests.
+
+---
+
+**deformed** *(adj)* if someone or something is **deformed**, they are a strange shape. **deformity** *(n).*
 
 ---
