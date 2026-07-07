@@ -132,3 +132,75 @@
 3. **darts** *(singular n)* a game in which players score points by throwing darts at a board with numbers on it.
 
 ---
+
+**dash** *dashes dashing dashed*
+1. *(n)* a small line (–) used as a punctuation mark or in Morse code.
+2. *(v)* to move quickly. *I dashed to the shop before it shut.*
+
+---
+
+**data** *(n)* information, or facts. *The scientists examined all the data.*
+
+---
+
+**database** *(n)* a store of information held on a computer.
+
+---
+
+**date** *dating dated*
+1. *(n)* a particular day, month, or year.
+2. *(n)* an appointment to meet someone, especially a girlfriend or boyfriend.
+3. *(v)* to go out with your boyfriend or girlfriend regularly.
+4. *(v)* if something **dates** from a certain time, it was made then.
+5. *(n)* a sticky brown fruit with a long, thin stone inside it.
+6. if something is **dated** or **out of date**, it is no longer fashionable.
+7. if something is **up to date**, it is modern.
+
+---
+
+**daughter** *(n)* someone's **daughter** is their female child.
+
+---
+
+**daunt** *daunting daunted (v)* if something **daunts** you, it frightens and discourages you. *We were a little daunted by the long climb ahead.*
+
+---
+
+**dawdle** *dawdling dawdled*
+1. *(v)* to walk slowly. *The boys dawdled to school.* **dawdler** *(n).*
+2. *(v)* to do something slowly. *Jemima dawdled over her breakfast.*
+
+---
+
+**dawn** *dawning dawned*
+1. *(n)* sunrise, or the beginning of the day. **dawn** *(v).*
+2. *(n)* the start of something new. *The dawn of a new age.* **dawn** *(v).*
+3. *(v)* if something **dawns** on you, you begin to understand it.
+
+---
+
+**day**
+1. *(n)* a 24-hour period, from midnight to midnight.
+2. *(n)* the light part of the day.
+
+---
+
+**daydream** *daydreaming daydreamed*
+1. *(n)* a dream that you have while you are awake.
+2. *(v)* to let your mind wander. **daydreamer** *(n).*
+
+---
+
+**daze** *(n)* if you are in a **daze**, you are stunned and unable to think clearly. **dazed** *(adj).*
+
+---
+
+**dazzle** *dazzling dazzled*
+1. *(v)* to blind someone for a short time with a bright light. **dazzling** *(adj).*
+2. *(v)* to amaze someone. *Tanya dazzled the audience with her playing.* **dazzling** *(adj).*
+
+---
+
+**dead** *(adj)* no longer alive.
+
+---
