@@ -97,3 +97,31 @@
 2. *(dez-zert)* *(v)* to abandon someone, or to run away from the army. **deserter** *(n)*
 
 ---
+
+**deserve** deserving deserved *(v)* to earn something because of the way that you behave. *Uma deserves a reward for her hard work.*
+
+---
+
+**design** designing designed
+1. *(v)* to draw something that could be built or made. **designer** *(n)*
+2. *(n)* the shape or style of something.
+
+---
+
+**desire** *(n)* a strong wish or need for something or someone. **desire** *(v)*. **desirable** *(adj)*
+
+---
+
+**desk** *(n)* a table, often with drawers, used for working at or writing on.
+
+---
+
+**desktop publishing** *(n)* the use of a computer to arrange words and pictures on a page, so that the pages are ready to be printed as part of a book, magazine, etc.
+
+---
+
+**desolate**
+1. *(adj)* deserted, or uninhabited. *A desolate village.* **desolation** *(n)*
+2. *(adj)* sad and lonely. *After my friend left, I felt really desolate.* **desolation** *(n)*. **desolately** *(adv)*
+
+---
