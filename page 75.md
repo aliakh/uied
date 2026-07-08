@@ -72,3 +72,71 @@
 **detective** *(n)* someone who investigates crimes, usually for the police.
 
 ---
+
+**detention**
+1. *(n)* a punishment in which a pupil has to stay in school when other pupils are free.
+2. *(n)* if someone is held **in detention**, they are kept prisoner.
+3. **detention centre** *(n)* a type of prison for young offenders.
+
+---
+
+**deter** deterring deterred *(v)* to prevent or discourage someone from doing something.
+
+---
+
+**detergent** *(n)* liquid or powder used for cleaning things.
+
+---
+
+**deteriorate** deteriorating deteriorated *(v)* to get worse. **deterioration** *(n)*
+
+---
+
+**determined** *(adj)* if you are **determined** to do something, you have made a firm decision to do it. **determination** *(n)*
+
+---
+
+**deterrent** *(n)* something that stops you doing something because you are afraid of the consequences. *Burglar alarms are effective deterrents against crime.*
+
+---
+
+**detest** detesting detested *(v)* if you **detest** something or somebody, you dislike them very much. **detestable** *(adj)*
+
+---
+
+**detonate** detonating detonated *(v)* to set off an explosion. **detonator** *(n)*. **detonation** *(n)*
+
+---
+
+**detour** *(n)* a longer, alternative route to somewhere, usually taken to avoid an obstacle.
+
+---
+
+**detract** detracting detracted *(v)* to make something less enjoyable or valuable. *The rain detracted from the pleasure of our walk.*
+
+---
+
+**detrimental** *(adj)* harmful. *Smoking is detrimental to your health.*
+
+---
+
+**deuce** *(jooss)* *(n)* in tennis, the score of deuce means that both players have 40 points.
+
+---
+
+**devalue** devaluing devalued
+1. *(v)* to reduce the value of a currency in relation to another currency or to gold. **devaluation** *(n)*
+2. *(v)* to make something worth less than it was. *Why do you always devalue my efforts?*
+
+---
+
+**devastated**
+1. *(adj)* very badly damaged or destroyed. *The area was devastated by the floods.* **devastation** *(n)*. **devastate** *(v)*
+2. *(adj)* shocked and distressed. *I was devastated by the dreadful news.* **devastating** *(adj)*
+
+---
+
+**develop** developing developed
+1. *(v)* to grow. *The boys' friendship developed slowly.* **development** *(n)*
+
+---
