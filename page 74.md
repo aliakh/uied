@@ -70,5 +70,30 @@
 
 **derive** deriving derived
 1. *(v)* to take or receive something. *Ed derives a lot of pleasure from her work.*
+2. *(v)* if a word is **derived** from another word, it has developed from it. *The word dictionary is derived from the Latin word "dictio", meaning word or phrase.* **derivation** *(n)*
+
+---
+
+**derv** *(n)* a fuel used in diesel engines. Derv stands for diesel-engined road vehicle.
+
+---
+
+**descant** *(n)* a tune that is played or sung above the main tune.
+
+---
+
+**descend** descending descended
+1. *(v)* to climb down, or go down to a lower level. **descent** *(n)*
+2. *(v)* if you are **descended** from someone, you belong to a later generation of their family. **descendant** *(n)*
+
+---
+
+**describe** describing described *(v)* to create a picture of something in words. **description** *(n)*. **descriptive** *(adj)*
+
+---
+
+**desert** deserting deserted
+1. *(dez-ert)* *(n)* a sandy or stony area where hardly any plants grow because there is so little rain. *The map shows the main deserts of the world and is surrounded by examples of desert wildlife.* **desert** *(adj)*
+2. *(dez-zert)* *(v)* to abandon someone, or to run away from the army. **deserter** *(n)*
 
 ---
