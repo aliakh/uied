@@ -58,3 +58,59 @@ See **scuba diving**
 ---
 
 **D.I.Y.** *(n)* home improvements, repairs, and decorations that you do yourself. DIY stands for do-it-yourself.
+
+---
+
+**dizzy** *dizzier dizziest*
+*(adj)* If you feel **dizzy**, you feel giddy and confused.
+
+---
+
+**DJ** short for **disc jockey**
+
+---
+
+**DNA** *(n)* the molecule that carries information which gives living things their special characteristics. The letters stand for deoxyribonucleic acid. *The diagram shows the linked strands of DNA which separate, as a cell divides, to produce two identical new cells.*
+
+---
+
+**do** *does doing did done*
+1 *(v)* to perform an action. *Dad was doing the washing.*
+2 *(v)* to deal with something. *Have you done your hair today?*
+3 *(v)* to be acceptable. *This bread will do until tomorrow.*
+4 *(v)* to get on. *Philippa is doing well at college.*
+
+---
+
+**dock** *docking docked*
+1 *(n)* a place where ships load and unload their cargo. dock *(v)*.
+2 *(n)* In a court of law, the **dock** is where the accused person stands.
+
+---
+
+**doctor** *(n)* someone trained to treat sick people.
+
+---
+
+**document** *documenting documented*
+1 *(n)* a piece of paper containing important or useful information.
+2 *(n)* a file on a computer.
+3 *(v)* to write down the facts about something.
+
+---
+
+**documentary** *documentaries (n)* a film or television programme made about real situations and people.
+
+---
+
+**dodge** *dodging dodged (v)* to avoid something or somebody by moving quickly. *Kirsty dodged the ball.*
+
+---
+
+**doe** *(n)* the female of animals such as rabbits, deer, or kangaroos.
+
+---
+
+**dog** *dogging dogged*
+1 *(n)* a four-legged mammal that is often kept as a pet.
+2 *(v)* to follow someone closely.
