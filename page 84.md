@@ -102,3 +102,69 @@
 **eclipse**
 1 *(n)* In an **eclipse of the Moon**, the Earth comes between the Sun and the Moon, so that all or part of the Moon is blocked out.
 2 *(n)* In an **eclipse of the Sun**, the Moon comes between the Sun and the Earth, so that all or part of the Sun's light is blocked out.
+
+---
+
+**ecology**
+1 *(n)* the study of the relationship between plants, animals, and their environment. ecologist *(n)*.
+2 *(n)* the study of how human activity affects the Earth. This is also known as human ecology. ecologist *(n)*. ecological *(adj)*. ecologically *(adv)*.
+
+---
+
+**e-commerce** *(ee-kom-urs) (n)* e-commerce is the general name for business carried out on the Internet.
+
+---
+
+**economical** *(adj)* not wasteful. *Our car is very economical on petrol.*
+
+---
+
+**economics** *(singular n)* the study of the way money is made and used in a society. economist *(n)*.
+
+---
+
+**economy** *economies*
+1 *(n)* the way that a country runs its industry, trade, and finance.
+2 When you make **economies**, you do things differently to save money. economize *(v)*.
+3 *(n)* An **economy** pack contains a large quantity of something at a low price.
+
+---
+
+**ecosystem** *(ee-koh-sis-tem) (n)* a self-contained community of creatures, plants, and their environment. If part of an ecosystem is destroyed, other parts may be affected.
+
+---
+
+**ecstasy** *ecstasies*
+1 *(n)* a feeling of great happiness. ecstatic *(adj)*. ecstatically *(adv)*.
+2 *(n)* a drug which creates a short-term effect of pleasure and extreme energy, followed by great exhaustion.
+
+---
+
+**eczema** *(ex-ma) (n)* a skin disease that makes the skin dry, rough, and itchy.
+
+---
+
+**eddy** *eddies (n)* a circular current in a liquid. eddy *(v)*. eddying *(adj)*.
+
+---
+
+**edge** *edging edged*
+1 *(n)* a boundary.
+2 *(v)* to move very slowly and carefully. *We edged our way along the ledge.*
+3 If you are **on edge**, you are nervous or anxious. edgy *(adj)*.
+
+---
+
+**edgeways**
+1 *(adj)* sideways.
+2 If you cannot get a word in **edgeways** in a discussion, people do not give you a chance to speak.
+
+---
+
+**edible** *(adj)* fit to be eaten. *Only pick the edible mushrooms!*
+
+---
+
+**edit** *editing edited*
+1 *(v)* to check a piece of writing for mistakes and cut it down if it is too long.
+2 *(v)* to cut and put together pieces of film or videotape to make a film, television programme, etc.
