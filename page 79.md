@@ -120,3 +120,70 @@
 **distinct**
 1 *(adj)* very clear. *Pascale has a distinct French accent.* distinctly *(adv)*
 2 *(adj)* clearly different. *The original recording is quite distinct from the cheap copies.* distinctive *(adj)*.
+
+---
+
+**distinction**
+1 *(n)* a clear difference.
+2 *(n)* the highest grade in some examinations.
+
+---
+
+**distinguish** *distinguishes distinguishing distinguished (v)* to tell the difference between things. *Can you distinguish between a frog and a toad?* distinguishable *(adj)*.
+
+---
+
+**distinguished** *(adj)* A **distinguished** person is famous for the important things they have done.
+
+---
+
+**distort** *distorting distorted*
+1 *(v)* to twist something out of shape. distortion *(n)*. distorted *(adj)*.
+2 *(v)* to try to twist the truth.
+
+---
+
+**distract** *distracting distracted (v)* If something or someone **distracts** you, they put you off what you are doing. distraction *(n)*.
+
+---
+
+**distress**
+1 *(n)* a feeling of great pain or sadness. distressed *(adj)*. distressing *(adj)*
+2 **distress signal** *(n)* a radio message, flare, etc. from a ship or aircraft, to show that it is in trouble.
+
+---
+
+**distribute** *distributing distributed*
+1 *(v)* to give things out. *Naomi distributed the sweets among his friends.* distribution *(n)*.
+2 *(v)* to deliver products to various places. distribution *(n)*.
+
+---
+
+**distributor**
+1 *(n)* a person or company that delivers products to various places.
+2 *(n)* the part of a car engine which revolves, sending electricity from the ignition system to fire each cylinder in turn.
+
+---
+
+**district** *(n)* an area or region.
+
+---
+
+**distrust** *distrusting distrusted (v)* If you **distrust** someone, you think that they cannot be trusted. distrust *(n)*. distrustful *(adj)*. distrustfully *(adv)*.
+
+---
+
+**disturb** *disturbing disturbed*
+1 *(v)* to interrupt somebody when they are doing something.
+2 *(v)* to worry someone.
+
+---
+
+**disturbed** *(adj)* If someone is **disturbed**, they are unstable and have difficulty in controlling their behaviour.
+
+---
+
+**ditch** *ditches ditching ditched*
+1 *(n)* a long, narrow channel that drains water away.
+2 *(v)* if a pilot **ditches** his plane, he makes an emergency landing in water.
+3 *(v)* (slang) if one person **ditches** another, they leave them suddenly. *Jodie ditched her boyfriend last week.*
