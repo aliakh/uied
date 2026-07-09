@@ -138,5 +138,71 @@
 
 **develop** developing developed
 1. *(v)* to grow. *The boys' friendship developed slowly.* **development** *(n)*
+2. *(v)* to build on something, or make something grow. *The farmer is developing the field as a camp site.* **developer** *(n)*. **development** *(n)*
+3. *(v)* when a film is **developed**, it is treated with chemicals to bring out the pictures which have been taken.
+
+---
+
+**deviate** deviating deviated *(v)* to do something different from what is normal or acceptable. *The cyclist deviated from his usual route.* **deviation** *(n)*. **deviant** *(adj)*
+
+---
+
+**device**
+1. *(n)* a piece of equipment which does a particular job. *This is a useful device for taking the tops off bottles.*
+2. if you are **left to your own devices**, you can do what you want.
+
+---
+
+**devil**
+1. *(n)* in Christianity and Judaism, the **Devil** is the spirit of evil.
+2. *(v)* if you call someone a **devil**, you mean that they are naughty or wicked.
+
+---
+
+**devious**
+1. *(adj)* a devious person keeps their thoughts and actions secret, and cannot be trusted. **deviousness** *(n)*. **deviously** *(adv)*
+2. *(adj)* complicated and indirect. *We took a devious route back home.*
+
+---
+
+**devise** devising devised *(v)* to think something up, or invent something. *Let's devise a way to escape.*
+
+---
+
+**devoid** *(adj)* without something, or empty of something. *The house was devoid of furniture.*
+
+---
+
+**devolution** *(n)* the handing over of some power from a central government to a local government.
+
+---
+
+**devoted** *(adj)* loyal and loving. **devotion** *(n)*. **devotedly** *(adv)*
+
+---
+
+**devour** devouring devoured *(v)* to eat something quickly and greedily.
+
+---
+
+**devout** *(adj)* deeply religious. **devoutness** *(n)*. **devoutly** *(adv)*
+
+---
+
+**dew** *(n)* small drops of moisture which form overnight on cool surfaces outside. **dewy** *(adj)*
+
+---
+
+**dexterity** *(n)* skill, especially in using your hands. *Simon showed great dexterity in modelling the clay.* **dexterous** *(adj)*
+
+---
+
+**diabetes** *(dye-a-bee-tees)* *(n)* a disease in which you have too much sugar in your blood. **diabetic** *(dye-a-bet-ik)* *(adj)*
+
+---
+
+**diabolical**
+1. *(adj)* extremely wicked. *A diabolical plan.* **diabolically** *(adv)*
+2. *(adj)* *(informal)* awful, or terrible. *A diabolical essay.* **diabolically** *(adv)*
 
 ---
