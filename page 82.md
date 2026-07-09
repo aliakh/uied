@@ -114,3 +114,50 @@
 2 *(v)* to talk in a dull and monotonous way. *Hector droned on about cricket.*
 3 *(n)* a male bee which does not make honey and has no sting. See **honeycomb**
 4 *(n)* a pipe attached to a bagpipe. See **bagpipes**
+
+---
+
+**drool** *drooling drooled*
+1 *(v)* to let saliva trickle from your mouth.
+2 *(v)* If you **drool** over something, you really like and want it.
+
+---
+
+**droop** *drooping drooped*
+1 *(v)* to hang down, or to sag.
+2 *(v)* When people **droop**, they run out of energy.
+
+---
+
+**drop** *dropping dropped*
+1 *(v)* to let something fall. *Nancy dropped her bag on the sofa.*
+2 *(v)* to go downwards. *The acrobat dropped to the floor.* drop *(n)*.
+3 *(n)* a small quantity of liquid. *A drop of water.*
+4 *(v)* If you **drop out**, you stop doing something. dropout *(n)*.
+5 *(v)* When players are **dropped**, they are left out of a team.
+
+---
+
+**drought** *(rhymes with shout) (n)* a long spell of very dry weather.
+
+---
+
+**drown** *drowning drowned*
+1 *(v)* When someone **drowns**, they die because their lungs fill with water.
+2 *(v)* to make a louder noise than something else. *The noise of the drill drowned my singing.*
+
+---
+
+**drowsy** *drowsier drowsiest (adj)* sleepy. *This medicine may make you feel drowsy.* drowsiness *(n)*. drowse *(v)*. drowsily *(adv)*.
+
+---
+
+**drug**
+1 *(n)* a chemical substance used to treat illness.
+2 *(n)* a substance that people take because of its effect on them. Drugs are dangerous and usually cause addiction.
+3 *(v)* to make someone unconscious by giving them a drug. drugged *(adj)*.
+4 **drug addict** *(n)* someone who cannot give up using drugs.
+
+---
+
+**drugstore** *(n)* (US) a shop where medicines and various other items are sold.
