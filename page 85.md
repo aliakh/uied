@@ -105,3 +105,73 @@
 ---
 
 **elated** *(adj)* very pleased and excited. elation *(n)*.
+
+---
+
+**elbow** *(n)* the joint that connects the upper and lower parts of your arm.
+
+---
+
+**elder** *(adj)* older. *My elder sister.*
+
+---
+
+**elderly** *(adj)* old.
+
+---
+
+**elect** *electing elected (v)* to choose someone or decide something by voting. election *(n)*.
+
+---
+
+**electrician** *(n)* someone who installs electrical systems and mends electrical machines.
+
+---
+
+**electricity** *(n)* a form of energy caused by moving electrons, that is used for lighting, heating, and making machines work. electric *(adj)*. electrical *(adj)*.
+
+---
+
+**electrocute** *electrocuting electrocuted (v)* to kill or injure someone by giving them a severe electric shock. electrocution *(n)*.
+
+---
+
+**electrode** *(n)* a conductor through which an electric current can flow into or out of a gas or liquid. See **sparking plug**
+
+---
+
+**electrolyte** *(n)* a soluble substance that conducts electricity.
+
+---
+
+**electromagnet** *(n)* a magnet which works by electricity.
+
+---
+
+**electron** *(n)* one of the microscopic parts of an atom. Electrons carry electrical energy. See **atom**.
+
+---
+
+**electronic** *(adj)* Electronic machines are worked by minute amounts of electricity produced by electrons. They contain transistors, silicon chips, or valves which control an electric current. Computers, televisions, and radios are all electronic. electronically *(adv)*.
+
+---
+
+**electronic mail** *(n)* messages sent by one computer to another.
+
+---
+
+**electronics**
+1 *(singular v)* the study of minute electrical currents, by creating circuits with electronic components.
+2 *(singular n)* the technology that makes electronic machines work.
+
+---
+
+**elegant** *(adj)* graceful and stylish. elegance *(n)*. elegantly *(adv)*.
+
+---
+
+**element**
+1 *(n)* In chemistry, an **element** is a substance that cannot be split into a simpler substance. Oxygen, copper, and carbon are elements.
+2 *(n)* one of the simple, basic parts of something. *Claude taught me the elements of cookery.*
+3 *(n)* a wire or coil in an electrical heater, toaster, etc. that heats up when electricity passes through it. See **iron**.
+4 **the elements** *(plural n)* the weather.
