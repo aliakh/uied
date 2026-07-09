@@ -46,3 +46,32 @@
 **direct** *directing directed*
 1 *(adj)* in a straight line, or by the shortest route. directly *(adv)*
 2 *(v)* to supervise people, especially in a play or film.
+3 *(v)* to tell someone the way to go. *Please direct me to the hotel.*
+4 *(adj)* If someone is **direct**, they have a very straightforward manner. directly *(adv)*.
+
+---
+
+**direction**
+1 *(n)* the way that someone or something is moving or pointing. *We travelled in a westerly direction.*
+2 **directions** *(plural n)* instructions. *Follow the directions carefully.*
+
+---
+
+**director**
+1 *(n)* one of the senior people in charge of a company.
+2 *(n)* the person in charge of making a film or television programme.
+
+---
+
+**directory** *directories (n)* a book which gives addresses, phone numbers, etc. in alphabetical order.
+
+---
+
+**dirty** *dirtier dirtiest*
+1 *(adj)* not clean. dirt *(n)*.
+2 *(adj)* unfair. *A dirty trick.*
+3 *(n)* **Dirty jokes** are rude jokes which may offend some people.
+
+---
+
+**disabled** *(adj)* People who are **disabled** are restricted in what they can do, usually because of an illness or injury. disability *(n)*.
