@@ -67,3 +67,63 @@
 ---
 
 **doughnut** *(doh-nut) (n)* a small cake that is made from dough, deep-fried and covered with sugar.
+
+---
+
+**dove** *(n)* a bird that makes a gentle, cooing sound. *The dove is often used as a symbol of peace.*
+
+---
+
+**down**
+1 *(prep)* from a higher to a lower place. *Emma ran down the hill.* downward *(adj)*. down *(adv)*.
+2 *(n)* the soft feathers of a bird. downy *(adj)*.
+3 *(adj)* If you feel **down**, you feel sad or depressed.
+
+---
+
+**download** *downloading downloaded (v)* to copy information or pictures onto your computer from another computer over the Internet. downloadable *(adj)*.
+
+---
+
+**dowry** *dowries (n)* the money or property that women in some cultures bring with them when they marry.
+
+---
+
+**doze** *dozing dozed (v)* to sleep lightly for a short time. *Uncle Arthur has dozed off again.* doze *(n)*.
+
+---
+
+**dozen** *(n)* a group of twelve.
+
+---
+
+**Dr** short for **doctor**
+
+---
+
+**drab** *(adj)* very dull and dreary. *Gertrude wore a drab, grey dress.* drabness *(n)*.
+
+---
+
+**draft** *drafting drafted*
+1 *(v)* When you **draft** something, like a letter, you make a first rough copy of it. draft *(n)*.
+2 *(v)* If someone is **drafted**, they are made to join the armed forces. draft *(n)*.
+
+---
+
+**drag** *dragging dragged*
+1 *(v)* to pull something heavy along the ground.
+2 *(v)* If something **drags**, it seems to go slowly. *The lesson really dragged.*
+3 *(n)* (informal) If something is a **drag**, it is boring.
+
+---
+
+**dragon** *(n)* a fire-breathing monster that appears in stories and legends. *In China, people create colourful dragons which dance in their New Year processions.*
+
+---
+
+**drain** *draining drained*
+1 *(v)* to remove the liquid from something.
+2 *(n)* a pipe or channel that takes away water or sewage. drainage *(n)*.
+
+**drained** *(adj)* If you feel **drained**, you have no energy left.
