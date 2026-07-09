@@ -114,3 +114,38 @@ See **scuba diving**
 **dog** *dogging dogged*
 1 *(n)* a four-legged mammal that is often kept as a pet.
 2 *(v)* to follow someone closely.
+
+---
+
+**dole** *doling doled*
+1 *(n)* (informal) money paid by the government to people who are unemployed.
+2 *(v)* if you **dole out** something, like food or money, you give it out.
+
+---
+
+**dollar** *(n)* the main unit of money in the USA, Canada, Australia, and New Zealand.
+
+---
+
+**dolphin** *(n)* an intelligent water mammal with a long snout.
+
+---
+
+**dome** *(n)* a rounded roof.
+
+---
+
+**domestic**
+1 *(adj)* To do with the home. *Domestic chores.*
+2 *(adj)* **Domestic** animals are kept by people in their homes as pets. domesticated *(adj)*.
+3 *(adj)* to do with your own country. *A domestic flight.*
+
+---
+
+**dominate** *dominating dominated*
+1 *(v)* to control very powerfully. domination *(n)*. dominant *(adj)*.
+2 *(v)* to be the main feature of a situation. *The castle dominates the view.* dominant *(adj)*.
+
+---
+
+**donate** *donating donated (v)* to give something as a present. *We donated our profits to charity.* donation *(n)*.
