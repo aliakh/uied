@@ -53,3 +53,64 @@
 ---
 
 **dress rehearsal** *(n)* the last rehearsal of a play, in full costume.
+
+---
+
+**dribble** *dribbling dribbled*
+1 *(v)* to let saliva trickle from your mouth.
+2 *(v)* When you **dribble** in football, hockey, etc. you run with the ball, touching it often and keeping it close to you.
+
+---
+
+**drift** *drifting drifted*
+1 *(v)* When something **drifts**, it moves wherever the water or wind takes it.
+2 *(n)* a pile of sand or snow, created by the wind.
+3 *(v)* to move or act without any sense of purpose. *Ollie spent the whole day just drifting about.* drifter *(n)*.
+
+---
+
+**drill** *drilling drilled*
+1 *(n)* a tool, used for making holes.
+2 *(v)* to use a drill.
+3 *(n)* a way of doing something which is governed by strict rules. *Fire drill.*
+
+---
+
+**drink** *drinking drank drunk*
+1 *(n)* a liquid that you swallow.
+2 *(v)* to swallow liquid.
+3 *(n)* an alcoholic liquid. drinker *(n)*.
+
+---
+
+**drip** *dripping dripped*
+1 *(v)* When a liquid **drips**, it falls down slowly, drop by drop. drip *(n)*.
+2 *(n)* (informal) a silly and rather boring person.
+
+---
+
+**dripping** *(n)* fat obtained from meat while it is cooking, which can often be used again.
+
+---
+
+**drive** *driving drove driven*
+1 *(v)* to control a vehicle. driver *(n)*. driving *(n)*.
+2 *(v)* to force someone into a desperate state. *Losing his passport drove Matt to despair.*
+3 *(n)* a private road leading to a house.
+4 *(n)* energy. *Jenny will succeed, because she has a lot of drive.*
+
+---
+
+**drivel** *(n)* If someone talks **drivel**, what they say is rubbish.
+
+---
+
+**drizzle** *(n)* light rain. drizzle *(v)*.
+
+---
+
+**drone** *droning droned*
+1 *(v)* to make a steady, dull sound.
+2 *(v)* to talk in a dull and monotonous way. *Hector droned on about cricket.*
+3 *(n)* a male bee which does not make honey and has no sting. See **honeycomb**
+4 *(n)* a pipe attached to a bagpipe. See **bagpipes**
