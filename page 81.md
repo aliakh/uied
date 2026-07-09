@@ -127,3 +127,77 @@
 2 *(n)* a pipe or channel that takes away water or sewage. drainage *(n)*.
 
 **drained** *(adj)* If you feel **drained**, you have no energy left.
+
+---
+
+**drama**
+1 *(n)* a play.
+2 *(n)* If you study **drama**, you learn about acting and the theatre.
+3 *(n)* something which affects people seriously.
+
+---
+
+**dramatic**
+1 *(adj)* to do with acting and the theatre.
+2 *(adj)* very noticeable. *A dramatic change.* dramatically *(adv)*.
+3 *(adj)* If someone is being **dramatic**, they are making too much fuss about something.
+
+---
+
+**dramatize** or **dramatise** *dramatizing dramatized*
+1 *(v)* to adapt a story into a play or film. dramatization *(n)*.
+2 *(v)* If you **dramatize** an event, you make it seem very exciting.
+
+---
+
+**drapes** *(plural n)* (US) pieces of material that are pulled across a window or a stage to cover it. (curtains, UK)
+
+---
+
+**drastic** *(adj)* if you do something **drastic**, you take action suddenly and violently. drastically *(adv)*.
+
+---
+
+**draught** *(draft) (n)* a flow of cold air. draughty *(adj)*.
+
+---
+
+**draughts** *(drafts) (plural n)* a game played by two people with black and white counters on a squared board.
+
+---
+
+**draw** *drawing drew drawn*
+1 *(v)* to make a picture with a pencil, pen, etc. drawing *(n)*.
+2 *(v)* to pull something. *The carriage was drawn by horses. The band drew enormous crowds.*
+3 *(n)* If a competition ends in a **draw**, both sides are level.
+4 *(n)* a competition where something is picked out. *A lucky draw.*
+
+---
+
+**drawback** *(n)* a problem, or a disadvantage.
+
+---
+
+**drawer** *(n)* a sliding box in a piece of furniture, used for storing things.
+
+---
+
+**drawing pin** *(n)* a small pin with a flat, round head, used for fastening paper on noticeboards, walls, etc.
+
+---
+
+**drawing room** *(old-fashioned) (n)* a formal room where guests are entertained.
+
+---
+
+**dread** *dreading dreaded (v)* If you **dread** something, you are very afraid of it. dread *(n)*. dreaded *(adj)*.
+
+---
+
+**dreadful**
+1 *(adj)* very unpleasant. *A dreadful accident.* dreadfully *(adv)*.
+2 *(adj)* very bad. *A dreadful film.*
+
+---
+
+**dreadlocks** *(plural n)* a West Indian hairstyle, where the hair is grown long and twisted into strands.
