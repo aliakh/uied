@@ -58,3 +58,70 @@ diagrammatic *(adj)*
 **dice** *dicing diced*
 1 *(plural n)* six-sided cubes with a different number of spots on each face, used in games. The singular of dice is die, although most people say dice.
 2 *(v)* to cut something, like vegetables, into cubes. *Dice the carrots.* diced *(adj)*
+
+---
+
+**dictate** *dictating dictated*
+1 *(v)* to talk aloud so that someone can write down what you say.
+dictation *(n)*
+2 *(v)* to control something. *Mum dictates our bedtimes.*
+
+---
+
+**dictator** *(n)* someone who has complete personal control of a country. dictatorship *(n)*
+
+---
+
+**dictionary** *dictionaries (n)* a book like this one that explains what words mean and shows you how to spell them.
+
+---
+
+**didgeridoo** or **didjeridu**
+*(dij-er-ree-doo) (n)* a long, decorated tube, made from a hollowed-out branch or tree trunk, which is played as a musical instrument by Aborigines.
+
+---
+
+**die** *dying died*
+1 *(v)* to stop living, or come to an end.
+2 *(v)* If you are **dying** to do something, you really want to do it.
+3 *(n)* the singular form of the word dice.
+
+---
+
+**diesel** *(dee-zull)*
+1 **diesel engine** *(n)* a type of engine used in trains and motor vehicles. In a diesel engine, the fuel is ignited by heat from compressed air, rather than by a sparking plug.
+2 *(n)* a fuel used in diesel engines that is heavier than petrol.
+
+---
+
+**diet** *dieting dieted*
+1 *(n)* Your diet is what you eat.
+dietary *(adj)*
+2 *(v)* When you **diet**, you choose what you eat in order to lose weight.
+3 *(n)* a controlled eating plan.
+
+---
+
+**difference**
+1 *(n)* the way in which things are not like each other. *What's the difference between margarine and butter?*
+differ *(v)*. different *(adj)*.
+differently *(adv)*
+2 *(n)* The **difference** between two numbers is the amount by which one is less or more than the other. *The difference between 5 and 2 is 3.*
+
+---
+
+**difficult**
+1 *(adj)* not easy. *A difficult exam.*
+2 *(adj)* A difficult person is not easy to get on with.
+
+---
+
+**difficulty** *difficulties (n)* a problem.
+
+---
+
+**dig** *digging dug*
+1 *(v)* to use a spade to move earth.
+2 *(n)* a push, or a poke.
+3 *(n)* an unkind remark.
+4 *(n)* an archaeological excavation.
