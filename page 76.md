@@ -125,3 +125,62 @@ differently *(adv)*
 2 *(n)* a push, or a poke.
 3 *(n)* an unkind remark.
 4 *(n)* an archaeological excavation.
+
+---
+
+**digestion** *(n)* the process of breaking down food in the stomach, so that it can be absorbed into the blood. *This diagram shows the main organs used in human digestion.*
+digest *(v)*. digestive *(adj)*
+
+---
+
+**digger** *(n)* a large machine, used for moving earth.
+
+---
+
+**digit** *(dij-it)*
+1 *(n)* a finger.
+2 *(n)* a single figure. *625 is a three digit number.*
+
+---
+
+**digital**
+1 *(adj)* **digital** information is represented as a series of ones and zeros. digitize *(v)*. digitally *(adv)*
+2 *(adj)* **digital** equipment works by using information stored as a series of ones and zeros. *A digital camera.*
+3 *(adj)* A **digital** display shows time, speed, etc. in numbers.
+
+---
+
+**dignified** *(adj)* calm, serious, and in control. dignity *(n)*
+
+---
+
+**dilapidated** *(adj)* shabby and falling to pieces. dilapidation *(n)*
+
+---
+
+**dilemma** *(n)* If you are in a **dilemma**, you have to choose between alternatives.
+
+---
+
+**diligent** *(adj)* hard-working.
+diligence *(n)*. diligently *(adv)*.
+
+---
+
+**dilute** *diluting diluted (v)* When you **dilute** a liquid, you make it weaker by adding water. dilution *(n)*
+
+---
+
+**dimension** *(n)* The dimensions of an object are its measurements or its size. Objects have three dimensions: length, width, and height.
+
+---
+
+**diminish** *diminishes diminishing diminished (v)* If something **diminishes**, it becomes smaller or weaker. *A diminishing flame.*
+
+---
+
+**dimple** *(n)* a small dent in a person's cheek or chin. dimpled *(adj)*.
+
+---
+
+**dine** *dining dined (v)* to have a meal in a formal way. *Lord and Lady Fortescue dined at eight.* diner *(n)*
