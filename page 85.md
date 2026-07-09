@@ -57,3 +57,51 @@
 **egg**
 1 *(n)* an oval or rounded object produced by female birds, reptiles, and fish, in which their young develop. Also see **chicken**.
 2 *(n)* a cell created within a woman's body which, when fertilized, grows into a baby.
+
+---
+
+**egocentric** *(adj)* If you are **egocentric**, you are far more interested in yourself than in others. egocentricity *(n)*.
+
+---
+
+**eiderdown** *(eye-der-down) (n)* a warm bed cover filled with feathers or some other stuffing.
+
+---
+
+**Eid-ul-Adha** *(n)* a Muslim festival during the last month of the Islamic year when many Muslims make a pilgrimage to Mecca. Some Muslims celebrate the festival by sacrificing animals.
+
+---
+
+**Eid-ul-Fitr** *(n)* the Muslim festival to celebrate the end of the Ramadan period of fasting.
+
+---
+
+**either**
+1 *(conj)* **Either** can be used to indicate a choice. *You can either stay or go.*
+2 *(pronoun)* one of two. *Take either of them.* either *(adj)*.
+3 *(adv)* also, or similarly. *If Tom's not going, I won't either.*
+
+---
+
+**eject** *ejecting ejected*
+1 *(v)* to push something out. *Press this button to eject the tape.*
+2 *(v)* to throw someone out. *We ejected the troublemakers from the meeting.*
+3 *(v)* When pilots **eject** from their planes, they are thrown out of the cockpit by a special seat.
+
+---
+
+**elaborate** *elaborating elaborated*
+1 *(el-ab-or-ut) (adj)* complicated and detailed. *An elaborate pattern.* elaborately *(adv)*.
+2 *(el-ab-or-ate) (v)* to give more details. *Please elaborate on your plans.*
+
+---
+
+**elapse** *elapsing elapsed (v)* When time **elapses**, it passes.
+
+---
+
+**elastic** *(n)* a rubbery material which stretches. elasticity *(n)*.
+
+---
+
+**elated** *(adj)* very pleased and excited. elation *(n)*.
