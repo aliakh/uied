@@ -55,3 +55,65 @@
 **elope** *eloping eloped* *(v)* When a young man and woman **elope**, they run away from their homes to get married. **elopement** *(n)*.
 
 ---
+
+**eloquent** *(el-oh-kwent)* *(adj)* An **eloquent** person speaks easily and interestingly. **eloquence** *(n)*.
+
+---
+
+**else**
+1. *(adv)* other, or different. *They have gone somewhere else.*
+2. *(adv)* more. *Tell me if you need anything else.*
+
+---
+
+**elsewhere** *(adv)* somewhere else.
+
+---
+
+**elusive** *(adj)* very hard to find or catch. **elusiveness** *(n)*. **elusively** *(adv)*.
+
+---
+
+**e-mail** short for **electronic mail**
+
+---
+
+**embankment**
+1. *(n)* a long, low, earth bank, built to carry a railway, road, etc.
+2. *(n)* a high bank at the sides of a river, built to stop it from flooding.
+
+---
+
+**embargo** *embargoes* *(n)* an official order forbidding something from happening.
+
+---
+
+**embark** *embarking embarked*
+1. *(v)* to go on board a ship or aeroplane, ready for a journey.
+2. *(v)* to start something that will take a long time to finish. *Tanya has embarked on a massive art project.*
+
+---
+
+**embarrass** *embarrasses embarrassing embarrassed* *(v)* If something **embarrasses** you, it makes you feel awkward and uncomfortable. *Ron blushes when he is embarrassed.* **embarrassment** *(n)*.
+
+---
+
+**embezzle** *embezzling embezzled* *(v)* to steal money secretly from the organization that you work for. **embezzlement** *(n)*.
+
+---
+
+**emblem** *(n)* a symbol, or a sign. *The emblem of our club is a spider.*
+
+---
+
+**embrace** *embracing embraced* *(v)* to hug someone. **embrace** *(n)*.
+
+---
+
+**embroider** *embroidering embroidered* *(v)* to sew a picture or a design on to cloth. **embroidery** *(n)*.
+
+---
+
+**embryo** *(em-bree-oh)* *(n)* an unborn baby in the very early stage of development in its mother's womb.
+
+---
