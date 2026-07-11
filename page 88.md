@@ -69,3 +69,73 @@
 ---
 
 **ensemble** *(on-som-bl) (n)* a group of musicians or actors who often perform together.
+
+---
+
+**ensue** *ensuing ensued* *(v)* to happen next. *A furious argument ensued.* **ensuing** *(adj).*
+
+---
+
+**ensure** *ensuring ensured* *(v)* to make certain that something happens. *Please ensure that you lock the door.*
+
+---
+
+**enter** *entering entered*
+1. *(v)* to go into a place.
+2. *(v)* to say that you want to take part in a competition, race, or exam.
+3. *(v)* to type a small amount of information into a computer, or write it in a book.
+
+---
+
+**enterprise** *(n)* something that you try to do that is new and difficult.
+
+---
+
+**enterprising** *(adj)* Someone who is **enterprising** has lots of good ideas and is brave enough to try things that are new and difficult.
+
+---
+
+**entertain** *entertaining entertained*
+1. *(v)* to amuse and interest someone. **entertainer** *(n),* **entertainment** *(n),* **entertaining** *(adj).*
+2. *(v)* to invite people to your home for a meal. *We're entertaining friends tonight.*
+
+---
+
+**enthusiastic** *(adj)* If you are **enthusiastic** about something, you are very keen to do it or like it very much. **enthusiasm** *(n),* **enthusiast** *(n).*
+
+---
+
+**entice** *enticing enticed* *(v)* to tempt someone to do something. **enticement** *(n),* **enticing** *(adj).*
+
+---
+
+**entire** *(adj)* whole. **entirely** *(adv).*
+
+---
+
+**entrance** *entrancing entranced*
+1. *(en-trunss) (n)* the way into a place.
+2. *(en-transs) (v)* to give someone a feeling of wonder and pleasure. **entrancing** *(adj).*
+
+---
+
+**entrant** *(n)* someone who takes part in a competition, race, or exam.
+
+---
+
+**entrepreneur** *(n)* someone who starts businesses and is good at finding new ways to make money. **entrepreneurial** *(adj).*
+
+---
+
+**entrust** *entrusting entrusted* *(v)* If you **entrust** someone with something valuable or important, you give it to them to look after for you.
+
+---
+
+**entry** *entries*
+1. *(n)* a way into a place.
+2. *(n)* a picture, story, answer, etc. that you send into a competition.
+3. *(n)* a small piece of information in a dictionary, diary, computer, etc.
+
+---
+
+**envelop** *(en-vel-up) enveloping enveloped* *(v)* to cover or surround something completely. *The house was soon enveloped in flames.*
