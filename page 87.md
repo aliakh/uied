@@ -58,3 +58,38 @@
 
 **end** *ending ended*
 1. *(n)* the last part of something.
+2. *(n)* one of the two points furthest from the middle of an object.
+3. *(v)* to finish something.
+
+---
+
+**endanger** *endangering endangered* *(v)* to be dangerous to someone or something. *Pollution can endanger wildlife.* **endangered** *(adj).*
+
+---
+
+**endangered species** *(n)* a type of animal that is in danger of becoming extinct. *The blue whale is an endangered species.*
+
+---
+
+**endless** *(adj)* Something **endless** has no end, or seems to have no end.
+
+---
+
+**endure**
+1. *(v)* If you **endure** something unpleasant or painful, you put up with it. **endurance** *(n).*
+2. *(v)* If something **endures**, it lasts for a long time. **enduring** *(adj).*
+
+---
+
+**enemy** *enemies*
+1. *(n)* someone who hates you and wants to harm you.
+2. *(n)* the country or army that you are fighting against in a war.
+
+---
+
+**energetic** *(adj)* strong and active. **energetically** *(adv).*
+
+---
+
+**energy** *energies*
+1. *(n)* the strength to do active things without getting tired.
