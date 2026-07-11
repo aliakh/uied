@@ -139,3 +139,65 @@
 ---
 
 **envelop** *(en-vel-up) enveloping enveloped* *(v)* to cover or surround something completely. *The house was soon enveloped in flames.*
+
+---
+
+**envelope** *(en-ver-lope or on-ver-lope) (n)* a paper cover for a letter or card.
+
+---
+
+**enviable** *(adj)* If someone has something **enviable**, you would like to have it yourself.
+
+---
+
+**envious** *(adj)* If you are **envious**, you wish that you could have something that someone else has. **enviously** *(adv).*
+
+---
+
+**environment**
+1. *(n)* the natural world of the land, sea, and air. *We must protect the environment.* **environmentalist** *(n),* **environmental** *(adj),* **environmentally** *(adv).*
+2. *(n)* all the things that influence your life, such as the area where you live, your family, and the things that happen to you. *Some children never have a secure home environment.*
+
+---
+
+**environmentally friendly** *(adj)* Products are **environmentally friendly** if they are made of substances that do not damage the natural environment.
+
+---
+
+**envy** *envies envying envied* *(v)* to wish that you could have something that someone else has. **envy** *(n).*
+
+---
+
+**enzyme** *(n)* a protein in the bodies of humans and animals which speeds up chemical reactions, without being changed itself. *Enzymes help to digest food.*
+
+---
+
+**epic**
+1. *(n)* a long story, poem, or film about heroic adventures and great battles. **epic** *(adj).*
+2. *(adj)* heroic, or impressive. *An epic voyage of exploration.*
+
+---
+
+**epidemic** *(n)* When there is an **epidemic**, an infectious disease spreads quickly to many people.
+
+---
+
+**epigram** *(n)* a short, witty saying. **epigrammatic** *(adj).*
+
+---
+
+**epilepsy** *(n)* a disease of the brain that causes a person to have sudden blackouts or fits. **epileptic** *(n),* **epileptic** *(adj).*
+
+---
+
+**epilogue** *(n)* a short speech or piece of writing added to the end of a play, story, or poem.
+
+---
+
+**episode**
+1. *(n)* one of the programmes in a television or radio serial.
+2. *(n)* an event or set of events in your life. *I don't want to talk about that embarrassing episode!*
+
+---
+
+**epitaph** *(n)* a short description of someone who has died, written on their gravestone.
