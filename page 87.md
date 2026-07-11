@@ -93,3 +93,18 @@
 
 **energy** *energies*
 1. *(n)* the strength to do active things without getting tired.
+2. *(n)* power from coal, electricity, and other sources which makes machines work and produces heat.
+3. *(n)* In physics, **energy** is the ability of something to do work. It is measured in joules.
+
+---
+
+**engaged**
+1. *(adj)* If two people are **engaged**, they have decided that they will get married. **engagement** *(n).*
+2. *(adj)* If a telephone number or public toilet is **engaged**, it is in use.
+3. *(adj)* If someone is **engaged** in doing something, they are busy and occupied doing it.
+
+---
+
+**engine**
+1. *(n)* a machine that changes an energy source, such as petrol, into movement. *In the petrol engine shown here, electrical sparks from the sparking plugs ignite the compressed petrol and air mixture in the cylinders, which burns rapidly and pushes the pistons down in turn. The fast-moving pistons turn the crankshaft which produces a twisting effect that turns the wheels.* Also see **jet engine**.
+2. *(n)* the front part of a train that pulls all the carriages. See **steam locomotive**.
