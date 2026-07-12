@@ -118,5 +118,71 @@
 **feed** *feeding fed*
 1. *(v)* to give food to a person or an animal.
 2. *(v)* When babies or animals **feed**, they eat.
+3. *(n)* food for animals.
+4. *(v)* to put something, for example coins or information, into a machine. *Jan fed all the data into her computer.*
+
+---
+
+**feedback**
+1. *(n)* comments and reactions to something. *I'd like some feedback on these ideas.*
+2. *(n)* the loud, piercing noise made when the sound produced by an amplifier goes back into it.
+
+---
+
+**feel** *feeling felt*
+1. *(v)* to touch something with your fingers, or to experience something touching you. *Jess felt the sun on her face.*
+2. *(v)* to have a certain emotion or sensation. *Maddy felt angry.* **feeling** *(n)*
+3. *(v)* to think, or to have an opinion. *Barney felt that he had been badly treated.* **feeling** *(n)*
+
+---
+
+**feign** *(rhymes with pain) feigning feigned (v)* to pretend. *Bob feigned illness so that he could miss the test.*
+
+---
+
+**feisty** *(fy-stee) (adj) (informal)* If you are **feisty**, you are lively and able to stand up for yourself.
+
+---
+
+**feline** *(adj)* to do with cats.
+
+---
+
+**fell** *felling felled (v)* to cut something down or make something fall. *The gardener felled the tree. The wrestler felled his opponent.*
+
+---
+
+**fellow**
+1. *(n) (old-fashioned)* a man or a boy.
+2. *(adj)* belonging to the same class or group. *I like my fellow students.*
+
+---
+
+**felon** *(n)* someone who has committed a serious crime. **felony** *(n)*
+
+---
+
+**felt**
+1. *(n)* a thick cloth made of wool or other fibres pressed together.
+2. **felt-tip** *(n)* a colouring pen with a felt nib.
+
+---
+
+**female** *(n)* a person or animal of the sex that can give birth to babies or lay eggs. **female** *(adj)*
+
+---
+
+**feminine**
+1. *(adj)* to do with women.
+2. *(adj)* Someone who is **feminine** has qualities that are supposed to be typical of women. **femininity** *(n)*
+3. *(adj)* belonging to one of the main classes or genders of nouns in French, Latin, and other languages.
+
+---
+
+**feminist** *(n)* someone who believes strongly that women ought to have the same opportunities and rights that men have. **feminism** *(n)*, **feminist** *(adj)*
+
+---
+
+**fen** *(n)* an area of flat, low, marshy land.
 
 ---
