@@ -56,3 +56,139 @@
 3. *(ex-kuze) (v)* to give someone permission not to do something. *The instructor excused Lydia from games because of her injured toe.*
 
 ---
+
+**execute** *executing executed*
+1. *(v)* to kill someone as a punishment for a crime. **execution** *(n)*
+2. *(v)* If you execute a plan or order, you put it into action.
+
+---
+
+**executive** *(n)* someone who has a senior job in a company and is involved in planning its future.
+
+---
+
+**exempt** *(adj)* If you are **exempt** from something, you do not have to take part in it. **exemption** *(n)*, **exempt** *(v)*
+
+---
+
+**exercise** *exercising exercised*
+1. *(n)* physical activity that you do to keep fit and healthy.
+2. *(v)* to make your body work hard, for example, by playing sport, in order to keep fit and healthy.
+3. *(n)* a piece of work that you do in order to practise a skill. *Piano exercises.*
+
+---
+
+**exhale** *exhaling exhaled* *(v)* to breathe out. **exhalation** *(n)*
+
+---
+
+**exhaust** *exhausting exhausted*
+1. *(v)* If something exhausts you, it makes you very tired. **exhaustion** *(n)*, **exhausted** *(adj)*, **exhausting** *(adj)*
+2. *(v)* to use something up completely. *The explorers had almost exhausted their food supplies.*
+3. *(n)* the waste gases produced by the engine of a motor vehicle.
+4. *(n)* the pipe at the back of a motor vehicle from which waste gases from the engine are sent out.
+
+---
+
+**exhibit** *exhibiting exhibited* *(v)* to show something to the public. **exhibit** *(n)*, **exhibitor** *(n)*
+
+---
+
+**exhibition** *(n)* a public display of works of art, historical objects, etc.
+
+---
+
+**exhilarating** *(adj)* very exciting and thrilling. **exhilaration** *(n)*
+
+---
+
+**exile** *exiling exiled* *(v)* to send someone away from their own country and order them not to return. **exile** *(n)*
+
+---
+
+**exist** *existing existed*
+1. *(v)* to live, or to be real. *Did King Arthur exist?* **existence** *(n)*
+2. *(v)* to have just enough food to stay alive. *We existed on berries and water.*
+
+---
+
+**exit** *exiting exited*
+1. *(v)* to leave, or to go out. **exit** *(n)*
+2. *(n)* the way out of a place.
+
+---
+
+**exorcize** or **exorcise** *exorcizing exorcized* *(v)* to make an evil spirit leave a person or a place. **exorcism** *(n)*, **exorcist** *(n)*
+
+---
+
+**exotic**
+1. *(adj)* from a foreign, tropical country. *An exotic plant.*
+2. *(adj)* strange and fascinating. *An exotic perfume.*
+
+---
+
+**expand** *expanding expanded* *(v)* to increase in size. **expansion** *(n)*
+
+---
+
+**expanse** *(n)* a very large area. *A vast expanse of desert stretched ahead.*
+
+---
+
+**expect** *expecting expected*
+1. *(v)* to think that something will happen. *I expect it will rain.*
+2. *(v)* to wait for someone to arrive. *We're expecting visitors.*
+3. *(v)* to think that something ought to happen. *Aunt Jane expects you to behave perfectly.* **expectation** *(n)*
+4. *(informal)* If a woman is **expecting**, she is pregnant.
+
+---
+
+**expedition** *(n)*
+1. *(n)* a long journey for a special purpose, such as exploring.
+2. *(n)* a short trip to do something enjoyable. *A shopping expedition.*
+
+---
+
+**expel** *expelling expelled*
+1. *(v)* if someone is **expelled** from a school, they have to leave because they have behaved badly. **expulsion** *(n)*
+2. *(v)* to send or force something out. *You expel air from your lungs.*
+
+---
+
+**expenditure** *(n)* the amount of money that a person, a company, or a country spends.
+
+---
+
+**expense**
+1. *(n)* the spending of money, time, energy, etc. *Never mind the expense!*
+2. **expenses** *(plural n)* money spent on something to do with a job, which is paid back later. *Travelling expenses.*
+
+---
+
+**expensive** *(adj)* costing a lot of money. **expensively** *(adv)*
+
+---
+
+**experience** *experiencing experienced*
+1. *(v)* if you **experience** something, it happens to you.
+2. *(n)* something that happens to you.
+3. *(n)* the knowledge and skill that you gain by doing something. *Do you have any experience of sailing?* **experienced** *(adj)*
+
+---
+
+**experiment** *experimenting experimented*
+1. *(n)* a scientific test to try out a theory or to see the effect of something. **experiment** *(v)*
+2. *(v)* to try something new. **experiment** *(n)*
+
+---
+
+**expert** *(n)* someone who is very skilled at something or knows a lot about a particular subject. **expertise** *(n)*, **expert** *(adj)*
+
+---
+
+**expire** *expiring expired*
+1. *(v)* When a ticket, licence, etc. **expires**, it reaches the end of the time when it can be used. **expiry** *(n)*
+2. *(v)* to die.
+
+---
