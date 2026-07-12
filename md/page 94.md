@@ -61,3 +61,30 @@
 2. *(n)* land and buildings used for growing crops or rearing animals. **farm** *(adj)*
 
 ---
+
+**fascinate** *fascinating fascinated (v)* If someone or something **fascinates** you, you are really interested and excited by them. **fascination** *(n)*
+
+---
+
+**fascism** *(fash-izm) (n)* a way of organizing a country according to extreme right-wing and nationalist principles, with a powerful dictator and only one political party. **fascist** *(n)*
+
+---
+
+**fashion**
+1. *(n)* a style of clothing that is popular at a certain time. **fashionable** *(adj)*
+2. *(n)* a way of doing things.
+
+---
+
+**fast** *fasting fasted; faster fastest*
+1. *(adj)* quick. **fast** *(adv)*
+2. *(v)* to give up eating food for a time. *Muslims fast during Ramadan.* **fast** *(n)*
+3. *(adv)* firmly, or tightly. *Kit's head was stuck fast between the railings.*
+4. *(adj)* ahead of the right time. *My watch is five minutes fast.*
+5. *(adj)* **Fast** colours or dyes do not run or fade when you wash them.
+
+---
+
+**fasten** *fastening fastened (v)* to tie or join something firmly. **fastener** *(n)*, **fastening** *(n)*
+
+---
