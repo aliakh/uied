@@ -59,3 +59,64 @@
 **fax** *faxes (n)* a copy of a letter, document, etc. sent along a telephone line, using a special machine. **fax** *(v)*
 
 ---
+
+**fear** *fearing feared*
+1. *(n)* the feeling you have when you are in danger or you expect something bad to happen. **fearful** *(adj)*
+2. *(v)* to be afraid of something or someone.
+3. *(v)* to be worried about something. *I fear we're going to be late again.*
+
+---
+
+**fearless** *(adj)* very brave and not afraid. **fearlessly** *(adv)*
+
+---
+
+**fearsome** *(adj)* frightening. *A fearsome monster.*
+
+---
+
+**feasible** *(adj)* If something is **feasible**, it can be done. **feasibility** *(n)*, **feasibly** *(adv)*
+
+---
+
+**feast** *(n)* a large meal for a lot of people on a special occasion. **feast** *(v)*
+
+---
+
+**feat** *(n)* an amazing achievement.
+
+---
+
+**feather** *(n)* one of the light, fluffy parts that cover a bird's body. **feathered** *(adj)*
+
+---
+
+**feature** *featuring featured*
+1. *(n)* Your **features** are the different parts of your face.
+2. *(n)* an important part or quality of something. *My new computer has several useful features.* **feature** *(v)*
+3. *(v)* to use someone as one of the main stars in a film.
+4. *(n)* a newspaper article or part of a television programme that deals with a particular subject. *A music feature.*
+
+---
+
+**federal** *(adj)* If a country has a **federal** government, it is made up of several states that are controlled by a central government but also have their own government and make their own laws. **federalism** *(n)*, **federalist** *(n)*
+
+---
+
+**fed up** *(adj) (informal)* If you are **fed up**, you are bored, or unhappy about something.
+
+---
+
+**fee** *(n)* the amount of money that someone charges for a service.
+
+---
+
+**feeble** *feebler feeblest (adj)* very weak. **feebly** *(adv)*
+
+---
+
+**feed** *feeding fed*
+1. *(v)* to give food to a person or an animal.
+2. *(v)* When babies or animals **feed**, they eat.
+
+---
