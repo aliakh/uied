@@ -88,3 +88,31 @@
 **fasten** *fastening fastened (v)* to tie or join something firmly. **fastener** *(n)*, **fastening** *(n)*
 
 ---
+
+**fast food** *(n)* food, such as burgers and pizzas, that is prepared and served quickly by restaurants.
+
+---
+
+**fat** *fatter fattest*
+1. *(adj)* overweight, or plump. **fatness** *(n)*, **fatten** *(v)*
+2. *(n)* the soft substance in the body of a person or animal that helps to keep them warm. **fatty** *(adj)*
+3. *(n)* **Fats** are found in foods such as meat, milk, and cheese. They give you energy and are stored in your body to keep you warm.
+4. *(adj)* big, or thick. *A fat dictionary.*
+
+---
+
+**fatal**
+1. *(adj)* causing death. *A fatal accident.* **fatally** *(adv)*
+2. *(adj)* likely to have important, and usually bad, results. *A fatal decision.*
+
+---
+
+**fatality** *fatalities (n)* a death caused by an accident, a war, or another form of violence.
+
+---
+
+**fate**
+1. *(n)* the force that some people believe controls events and decides what happens to people.
+2. *(n)* Your **fate** is what will happen to you.
+
+---
