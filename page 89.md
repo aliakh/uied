@@ -109,3 +109,57 @@
 3. *(v)* to leak out of a crack or hole in something. *Gas was escaping from the pipe.* **escape** *(n)*
 
 ---
+
+**escort** *escorting escorted* *(v)* to go somewhere with someone, especially to protect them. **escort** *(n)*
+
+---
+
+**especially** *(adv)* specially, or mainly. *Crispin is especially good at singing. Alex loves sport, especially tennis.* **especial** *(adj)*
+
+---
+
+**Esperanto** *(n)* an artificial language invented in the 19th century and intended to be a world language.
+
+---
+
+**espionage** *(n)* spying.
+
+---
+
+**essay** *(n)* a piece of writing about a particular subject.
+
+---
+
+**essential**
+1. *(adj)* vital and important. *It is essential that you read the instructions before you begin.* **essentially** *(adv)*
+2. *(n)* something you really need and cannot do without. *Do make sure that you bring the essentials listed below.*
+
+---
+
+**establish** *establishes establishing established*
+1. *(v)* to set up a business, society, or organization. **establishment** *(n)*
+2. *(v)* to settle somewhere. *We feel established in our new house now.*
+3. *(v)* to confirm that something is true or correct. *The detectives established that the crime took place at night.*
+
+---
+
+**estate**
+1. *(n)* a large area of land owned by one person.
+2. *(n)* an area of land with houses, factories, or offices on it.
+3. *(n)* all the money, property, and other assets that someone leaves behind when they die.
+
+---
+
+**estate agent** *(n)* someone whose job is selling houses or land for people.
+
+---
+
+**esteem** *(n)* If you hold someone in **esteem**, you respect and admire them. **esteem** *(v),* **esteemed** *(adj)*
+
+---
+
+**estimate** *estimating estimated*
+1. *(less-tim-ate)* *(v)* to work something out roughly.
+2. *(less-tim-it)* *(n)* a rough guess or calculation about an amount, distance, cost, etc.
+
+---
