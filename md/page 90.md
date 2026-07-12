@@ -156,5 +156,66 @@
 
 **examination**
 1. *(n)* See **exam**.
+2. *(n)* a careful check, or an inspection. *A medical examination.*
+
+---
+
+**examine** *examining examined*
+1. *(v)* to look carefully at something. *The detectives examined the evidence.*
+2. *(v)* When doctors **examine** you, they check your body carefully to see what is wrong with you.
+3. *(v)* to test someone in an exam. **examiner** *(n)*
+
+---
+
+**example**
+1. *(n)* something typical of a larger group of things. *The wallaby is an example of a marsupial.*
+2. *(n)* a model for others to follow. *Felicity is an example to the rest of the class.*
+3. If you **make an example of** someone, you punish them as a warning to other people.
+
+---
+
+**exasperate** *exasperating exasperated* *(v)* If someone or something **exasperates** you, they make you very annoyed. **exasperation** *(n),* **exasperating** *(adj)*
+
+---
+
+**excavate** *excavating excavated* *(v)* to dig in the earth, either in order to put up a building or to discover ancient remains. **excavation** *(n),* **excavator** *(n)*
+
+---
+
+**exceed** *exceeding exceeded*
+1. *(v)* to be greater or better than something else. *The holiday exceeded my wildest dreams.*
+2. *(v)* to do more than is allowed or expected. *Drivers who exceed the speed limit will be fined.*
+
+---
+
+**excel** *(ex-sel)* *excelling excelled* *(v)* If you **excel** at something, you do it extremely well. *Gaby excels at ice-skating.*
+
+---
+
+**excellent** *(adj)* very good indeed. **excellence** *(n),* **excellently** *(adv)*
+
+---
+
+**except** *(prep)* apart from. *Everyone except Hannah went home.* **except** *(conj)*
+
+---
+
+**exception**
+1. *(n)* something that is not included in a general rule or statement. *Jasper hates girls, with just a few exceptions.*
+2. If someone **takes exception to** something, they are offended or annoyed by it.
+
+---
+
+**exceptional** *(adj)* outstanding, or rare. *Bryony shows exceptional talent for drawing.*
+
+---
+
+**excerpt** *(n)* a short piece taken from a longer book, film, or piece of music.
+
+---
+
+**excess** *excesses*
+1. *(n)* too much of something. **excess** *(adj)*
+2. in **excess of** more than.
 
 ---
