@@ -68,3 +68,55 @@
 3. **without fail** *(adv)* definitely, or every single time.
 
 ---
+
+**failing** *(n)* a fault or weakness in someone or something.
+
+---
+
+**faint** *fainting fainted; fainter faintest*
+1. *(adj)* weak. *A faint sound.* **faintness** *(n)*, **faintly** *(adv)*
+2. *(v)* to become dizzy and lose consciousness for a short time.
+3. *(adj)* A **faint** chance or idea is a very slight one.
+4. **faint-hearted** *(adj)* timid and not at all confident.
+
+---
+
+**fair** *fairer fairest*
+1. *(adj)* reasonable and equal. *Fair treatment.* **fairness** *(n)*, **fairly** *(adv)*
+2. *(adj)* Fair hair is light yellow.
+3. *(adj)* quite good. **fairly** *(adv)*
+4. *(n)* an outdoor entertainment with rides, amusements, and stalls. **fairground** *(n)*
+
+---
+
+**fairy** *fairies*
+1. *(n)* a magical creature like a tiny person with wings, found in fairy stories.
+2. **fairy lights** *(n)* small, coloured lights that are used to decorate Christmas trees.
+3. **fairy story** or **fairy tale** *(n)* a children's story about magic, fairies, giants, witches, etc.
+
+---
+
+**faith**
+1. *(n)* trust and confidence in someone or something. *Our coach has lots of faith in our team.*
+2. *(n)* a religion.
+
+---
+
+**faithful** *(adj)* loyal and trustworthy. **faithfulness** *(n)*, **faithfully** *(adv)*
+
+---
+
+**fake** *faking faked*
+1. *(v)* to make a copy of something and pretend that it is genuine. *Mia faked her boss's signature.*
+2. *(n)* a copy of something that is made to fool people. *This painting is not by Raphael, but it's a clever fake.* **fake** *(adj)*
+
+---
+
+**falcon** *(n)* a bird of prey that catches small birds in flight. In the traditional practice of falconry, falcons are trained to return with their prey to their owner, or falconer. *This young falcon stands on the falconer's gloved fist, and wears a leg strap and leash, which will be removed later.*
+
+---
+
+**fall** *falling fell fallen*
+1. *(v)* to drop downwards to the ground. **fall** *(n)*
+
+---
