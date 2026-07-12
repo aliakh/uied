@@ -67,3 +67,45 @@
 2. *(v)* to put up a structure. *This building was erected in 1982.* **erection** *(n)*
 
 ---
+
+**erode** *eroding eroded* *(v)* When something is **eroded**, it is gradually worn away by water or wind.
+
+---
+
+**erosion** *(n)* the gradual wearing away of a substance by water or wind. *Soil erosion.*
+
+---
+
+**erotic** *(adj)* to do with sexual love.
+
+---
+
+**errand** *(n)* If someone sends you on an **errand**, they ask you to go somewhere nearby to take a message or to deliver or collect something.
+
+---
+
+**erratic** *(adj)* If something is **erratic**, it does not follow a regular pattern. *Erratic behaviour.* **erratically** *(adv)*
+
+---
+
+**error** *(n)* a mistake.
+
+---
+
+**erupt** *erupting erupted*
+1. *(v)* When a volcano **erupts**, it throws out rocks, hot ash, and lava with great force. **eruption** *(n)*
+2. *(v)* to start happening suddenly. *Fighting erupted on the streets.*
+3. *(v)* If someone **erupts**, they suddenly become very angry.
+
+---
+
+**escalator** *(n)* a moving staircase.
+
+---
+
+**escape** *escaping escaped*
+1. *(v)* to break free from a place where you have been kept by force. **escape** *(n)*
+2. *(v)* to avoid something. *We escaped the rush hour traffic.*
+3. *(v)* to leak out of a crack or hole in something. *Gas was escaping from the pipe.* **escape** *(n)*
+
+---
