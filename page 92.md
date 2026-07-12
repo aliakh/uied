@@ -124,3 +124,59 @@
 **extraordinary** *(adj)* very unusual, or remarkable. **extraordinarily** *(adv)*
 
 ---
+
+**extraterrestrial**
+1. *(adj)* to do with, or coming from outer space. *Extraterrestrial messages.*
+2. *(n)* a creature from outer space.
+
+---
+
+**extravagant** *(adj)* If you are **extravagant**, you spend too much money, or are wasteful in the way you use things. **extravagance** *(n)*, **extravagantly** *(adv)*
+
+---
+
+**extreme**
+1. *(adj)* very great. *Extreme happiness.* **extremely** *(adv)*
+2. *(adj)* furthest, or outermost. *We reached the extreme edge of the wood.* **extremity** *(n)*
+
+---
+
+**extrovert** *(n)* someone who enjoys being with other people and is lively and talkative. **extrovert** *(adj)*
+
+---
+
+**exuberant** *(ex-yoo-ber-ent) (adj)* very cheerful and lively. **exuberance** *(n)*, **exuberantly** *(adv)*
+
+---
+
+**eye** *eyeing eyed*
+1. *(n)* one of the two organs in your head that you use for seeing.
+2. *(n)* the small hole in a needle.
+3. *(v)* to look carefully at someone or something. *Bert eyed the parrot suspiciously.*
+4. If you have an **eye for** something, you can judge how good it is. *Sue has an eye for a bargain.*
+
+---
+
+**eyebrow** *(n)* the line of hair that grows above each of your eyes.
+
+---
+
+**eyelash** *eyelashes (n)* one of the short, curved hairs that grow on the edge of your eyelids.
+
+---
+
+**eyelid** *(n)* the upper or lower fold of skin that covers your eye when it is closed.
+
+---
+
+**eyesight** *(n)* the ability to see.
+
+---
+
+**eyewitness** *eyewitnesses (n)* someone who has seen something take place and can describe what happened.
+
+---
+
+**eyrie** *(ear-ee) (n)* the nest of an eagle or some other bird of prey, built high on trees, mountains, or cliffs.
+
+---
