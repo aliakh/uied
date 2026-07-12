@@ -118,5 +118,60 @@
 
 **fall** *falling fell fallen*
 1. *(v)* to drop downwards to the ground. **fall** *(n)*
+2. *(v)* to decrease, or to become lower. *The temperature has fallen.* **fall** *(n)*
+3. *(v)* to become. *After a while, Yves fell asleep.*
+4. *(v)* to happen. *Night fell.*
+5. *(n) (US)* the season between summer and winter, when it gets colder, the days get shorter, and the leaves fall from the trees (autumn, UK).
+6. *(v)* If two people **fall out**, they quarrel with each other.
+7. *(v)* If something **falls through**, it fails to happen.
+
+---
+
+**fallow** *(adj)* Land that is **fallow** has been ploughed, but not planted with crops so that it can improve in quality.
+
+---
+
+**false**
+1. *(adj)* not true, or not correct. *False information.* **falsely** *(adv)*
+2. *(adj)* not real. *False eyelashes.*
+
+---
+
+**fame** *(n)* being famous. *Terry longs for fame.* **famed** *(adj)*
+
+---
+
+**familiar**
+1. *(adj)* If something is **familiar**, it is well known or easily recognized. *A familiar saying.*
+2. *(adj)* If you are **familiar** with something, you know it well. *Quentin is familiar with all Shakespeare's plays.* **familiarity** *(n)*
+
+---
+
+**family** *families*
+1. *(n)* a group of people related to each other, especially parents and their children.
+2. *(n)* a group of related animals or plants. *The leopard and the jaguar are members of the cat family.*
+3. **family tree** *(n)* a chart that shows how the members of a family are related over many generations.
+
+---
+
+**famine** *(n)* a serious shortage of food in a country.
+
+---
+
+**famished** *(adj)* If you are **famished**, you are very hungry.
+
+---
+
+**famous** *(adj)* If someone is **famous**, they are well known to many people.
+
+---
+
+**fan**
+1. *(n)* an enthusiastic supporter of a sport, pop group, etc.
+2. *(n)* a machine or an object that you use to blow or wave air on to you, in order to keep cool. **fan** *(v)*
+
+---
+
+**fanatic** *(n)* someone who is wildly enthusiastic about a belief, a cause, or an interest. *Lee is a football fanatic.* **fanatical** *(adj)*, **fanatically** *(adv)*
 
 ---
