@@ -85,3 +85,49 @@
 **flinch** *flinches flinching flinched (v)* to make a quick movement away from a source of pain. *Di flinched as the nurse approached with a needle.*
 
 **fling** *flinging flung (v)* to throw something violently.
+
+**flint** *(n)* a hard, blackish-grey stone, used in prehistoric times for making tools and weapons.
+
+**flip** *flipping flipped*
+1 *(v)* to toss or move something quickly. *Egon flipped the pancakes.*
+2 *(v) (informal)* If someone **flips**, they suddenly become angry or excited.
+
+**flippant** *(adj)* careless and not serious. *A flippant comment.* **flippancy** *(n)*, **flippantly** *(adv)*
+
+**flipper**
+1 *(n)* one of the broad, flat limbs of a sea creature, such as a seal or dolphin, that help it to swim. See **dolphin**.
+2 **flippers** *(plural n)* long, flat attachments that you fit on your feet to help you swim.
+
+**flirt** *flirting flirted*
+1 *(v)* If you **flirt** with someone, you talk to them in a teasing, sexy way. **flirt** *(n)*, **flirtatious** *(adj)*
+2 *(v)* If you **flirt** with an idea, you consider it, but not very seriously.
+
+**float** *floating floated*
+1 *(v)* to rest on water or air.
+2 *(v)* to move lightly and easily.
+3 *(n)* a small object attached to the end of a fishing line, which shows when the fish is biting. See **angling**.
+4 *(n)* a decorated truck that forms part of a procession.
+
+**flock** *flocking flocked*
+1 *(n)* a group of animals or birds. *A flock of sheep.*
+2 *(v)* to gather in a crowd. *Hundreds of fans flocked to see the band.*
+
+**flog** *flogging flogged*
+1 *(v)* to beat someone with a whip or stick. **flogging** *(n)*
+2 *(v) (slang)* to sell something.
+
+**flood** *flooding flooded*
+1 *(v)* When something, like a river, **floods**, it overflows with liquid beyond its normal limits. **flood** *(n)*
+2 *(v)* to overwhelm, or come in large amounts. *The charity was flooded with offers of help.*
+
+**floodlight** *(n)* a strong light, used to light up buildings or sports grounds.
+
+**floor**
+1 *(n)* the flat surface that you walk on inside a building.
+2 *(n)* a storey in a building. *The skyscraper has over 40 floors.*
+
+**flop** *flopping flopped*
+1 *(v)* to fall limply. **floppy** *(adj)*
+2 *(n) (informal)* a failure.
+
+**floppy disk** *(n)* a flexible magnetic disk that stores computer data. Floppy disks are also called diskettes.
