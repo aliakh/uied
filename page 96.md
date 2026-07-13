@@ -58,3 +58,45 @@
 **feudalism** *(n)* the medieval system in which people were given land and protection by the landowner, and in return, worked and fought for him. *This diagram shows how feudalism worked, with the king at the head of the system, and people at every level of society owing loyalty to the lord above them.* **feudal** *(adj)*
 
 ---
+
+**fever**
+1. *(n)* If someone has a **fever**, they have a high temperature. **feverish** *(adj)*
+2. *(n)* great excitement or agitation. **feverish** *(adj)*
+
+**few** *fewer fewest (adj)* not many. *few (n)*
+
+**fez** *fezzes (n)* a round, flat-topped, red hat, worn by some Muslim men.
+
+**fiancé** *(fee-on-say) (n)* If a man and woman are engaged to be married, he is her fiancé.
+
+**fiancée** *(fee-on-say) (n)* If a man and woman are engaged to be married, she is his fiancée.
+
+**fiasco** *(n)* a complete failure.
+
+**fib** *fibbing fibbed (v)* to tell a small lie. **fib** *(n)*, **fibber** *(n)*
+
+**fibre**
+1. *(n)* a fine thread of cloth.
+2. *(n)* a part of foods such as cereals and vegetables, which passes through the body, but is not digested. Fibre helps you to digest food. **fibrous** *(adj)*
+
+**fibreglass** *(n)* material made from fine threads of glass, used in buildings, cars, boats, etc.
+
+**fibre optics** *(singular n)* the passing of light through extremely thin glass or plastic tubes, or fibres. Fibre optics is used in operations and for sending telephone signals.
+
+**fickle** *(adj)* Someone who is **fickle** changes their mind very often. **fickleness** *(n)*
+
+**fiction** *(n)* stories that are made up. **fictional** *(adj)*
+
+**fiddle** *fiddling fiddled*
+1. *(v)* to keep touching or playing about with something.
+2. *(v)* *(informal)* to cheat. *Nora fiddled her expenses.* **fiddle** *(n)*
+3. *(n)* *(informal)* a violin. **fiddler** *(n)*
+
+**fiddly** *(adj)* If something is **fiddly**, it is awkward to do because it is very small or very complicated.
+
+**fidget** *fidgeting fidgeted (v)* to keep moving because you are bored or uneasy. **fidgety** *(adj)*
+
+**field** *fielding fielded*
+1. *(n)* a piece of land, sometimes used for growing crops or playing sports.
+2. *(v)* in games like cricket and baseball, the team that is **fielding** tries to catch the ball and get the batting team out.
+3. *(n)* an area of study or interest. *Robin is an expert in the field of ornithology.*
