@@ -91,3 +91,32 @@
 2. *(adj)* okay, or all right.
 3. *(adj)* not rainy. *A fine day.*
 4. *(adj)* thin, or delicate.
+5. *(v)* to demand some money as a punishment for doing something wrong. **fine** *(n)*
+
+---
+
+**finger** *fingering fingered*
+1. *(n)* one of the long parts of your hand that you can move.
+2. *(n)* an object shaped like a finger. *A chocolate finger.*
+3. *(v)* to touch something lightly with your fingers. *Ted fingered the fishing rod longingly.*
+
+**fingerprint** *(n)* the print made by the pattern of curved lines on your fingertips.
+
+**finicky** *(adj)* fussy, especially about food. *A finicky eater.*
+
+**finish** *finishes finishing finished*
+1. *(v)* to end or complete something.
+2. *(n)* the end of something, such as a race.
+
+**finite** *(fy-nyte) (adj)* limited, or with an end. **finitely** *(adv)*
+
+**fiord** see **fjord**.
+
+**fir** *(n)* a pointed, evergreen tree with needle-like leaves and cones.
+
+**fire** *firing fired*
+1. *(n)* flames, heat, and light produced by burning.
+2. *(v)* to shoot a gun or other weapon.
+3. *(v)* to sack someone from their job.
+
+**fire-extinguisher** *(n)* a metal case containing chemicals and water, that you use to put out a fire. *When you squeeze the handle of a foam and water fire-extinguisher, the piercer punctures the canister which releases carbon dioxide gas. The gas pushes on the surface of the water and detergent mixture, forcing it up the tube, through the hose and out of the spray nozzle, in a jet of foam and water.*
