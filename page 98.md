@@ -70,3 +70,40 @@
 **flabbergasted** *(adj) (informal)* stunned and surprised.
 
 **flaccid** *(flass-id) (adj)* soft and limp.
+
+---
+
+**flag** *(n)* a piece of cloth with a pattern on it, that is a symbol of a country, organization, etc.
+
+**flair** *(n)* natural skill or ability. *Jamie has a flair for cooking.*
+
+**flak**
+1. *(n)* anti-aircraft fire.
+2. *(n)* *(informal)* opposition and criticism.
+
+**flake** *flaking flaked*
+1. *(n)* a small, thin piece of something. *Large flakes of paint fell off the door.*
+2. *(v)* If something **flakes**, small, thin pieces of it peel off. **flaky** *(adj)*
+3. **flake out** *(v) (informal)* to fall asleep or collapse.
+
+**flamboyant** *(adj)* bold, showy, and brightly coloured.
+
+**flame**
+1. *(n)* a tongue of fire. **flaming** *(adj)*
+2. **flame-coloured** *(adj)* deep orangey-red.
+
+**flamingo** *flamingos or flamingoes (n)* a pink, long-legged bird with webbed feet.
+
+**flammable** *(adj)* likely to catch fire. *Flammable material.*
+
+**flank** *flanking flanked*
+1. *(n)* the side of an animal, between its ribs and hips.
+2. *(v)* to be at the side of someone or something. *The king was flanked by attendants.*
+
+**flannel**
+1. *(n)* woven, woollen fabric.
+2. *(n)* a small square of cloth, used to wash your face.
+
+**flap** *flapping flapped*
+1. *(v)* to move up and down. *The bird flapped its wings.*
+2. *(v)* to swing loosely. *The sail flapped in the breeze.*
