@@ -31,5 +31,30 @@
 
 **fertilize** or **fertilise** *fertilizing fertilized*
 1. *(v)* When an egg or a plant is **fertilized**, sperm joins with the egg, or pollen comes into contact with the reproductive part of the plant, so that reproduction begins. **fertilization** *(n)*
+2. *(v)* to put a substance, such as manure, on land to make it richer and make crops grow better. **fertilizer** *(n)*
+
+**fervent** *(adj)* If someone is **fervent** about something, they believe in it passionately. **fervently** *(adv)*
+
+**festival**
+1. *(n)* a time when people celebrate something, such as a holy day.
+2. *(n)* an organized set of artistic or musical events, often held at the same time each year. *An opera festival.*
+
+**festive** *(adj)* cheerful and lively because there is something to celebrate. *A festive mood.*
+
+**festoon** *festooning festooned (v)* to cover something with decorations.
+
+**fetch** *fetches fetching fetched*
+1. *(v)* to go to get something or somebody.
+2. *(v)* to be sold for a particular price. *That lamp should fetch a good price.*
+
+**fetching** *(adj)* attractive, or pretty.
+
+**fête** *(rhymes with late) (n)* an outdoor event with games, stalls, and things for sale, usually held to raise money for charity.
+
+**fetus** or **foetus** *(feet-us)* *fetuses (n)* a baby or animal before it is born, at the stage when it is developing in its mother's womb. See **pregnant**.
+
+**feud** *(rhymes with chewed) (n)* a bitter quarrel between two people or families that lasts for a long time. **feud** *(v)*
+
+**feudalism** *(n)* the medieval system in which people were given land and protection by the landowner, and in return, worked and fought for him. *This diagram shows how feudalism worked, with the king at the head of the system, and people at every level of society owing loyalty to the lord above them.* **feudal** *(adj)*
 
 ---
