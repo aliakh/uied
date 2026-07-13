@@ -40,3 +40,48 @@
 **flavour** *flavouring flavoured*
 1 *(n)* taste. **flavoured** *(adj)*, **flavourless** *(adj)*
 2 *(v)* to add taste to food. *Flavour the stew with herbs and pepper.* **flavouring** *(n)*
+
+**flaw** *(n)* a fault, or a weakness. **flawed** *(adj)*, **flawless** *(adj)*
+
+**flea**
+1 *(n)* a small, jumping and biting insect that lives on the blood of people or animals.
+2 **flea market** *(n)* a street market selling old clothes and other second-hand items.
+
+**fleck** *(n)* a spot, or a tiny patch of something. *A fleck of soot landed on Emily's white shirt.* **flecked** *(adj)*
+
+**fledgling** *(n)* a young bird.
+
+**flee** *fleeing fled (v)* to run away from danger.
+
+**fleece** *(n)* a sheep's woolly coat. **fleecy** *(adj)*
+
+**fleet** *(n)* a group of vehicles, such as ships or trucks.
+
+**fleeting** *(adj)* not lasting long. *A fleeting glance.* **fleetingly** *(adv)*
+
+**flesh**
+1 *(n)* the soft part of your body, made up of fat and muscle. **fleshy** *(adj)*
+2 *(n)* the meat of an animal, or the part of a fruit or vegetable that you can eat.
+
+**flex** *flexes flexing flexed*
+1 *(n)* the wire that joins a piece of electrical equipment to the plug.
+2 *(v)* to bend or stretch something. *Tarzan flexed his muscles.*
+
+**flexible** *(adj)* able to bend or change. *A flexible plastic ruler. Francis is flexible about Saturday's arrangements.* **flexibility** *(n)*, **flexibly** *(adv)*
+
+**flick** *flicking flicked*
+1 *(v)* to move with a quick, sudden movement. *Pete flicked a pea off the table.* **flick** *(n)*
+2 **the flicks** *(plural n) (slang)* the cinema.
+
+**flicker** *flickering flickered (v)* If something **flickers**, it moves unsteadily. *The flame flickered in the wind.* **flicker** *(n)*
+
+**flight**
+1 *(n)* flying, or the ability to fly.
+2 *(n)* a journey by aircraft.
+3 If you **take flight**, you run away. **flight** *(n)*
+
+**flimsy** *flimsier flimsiest (adj)* thin, or weak. *Flimsy material.* **flimsiness** *(n)*, **flimsily** *(adv)*
+
+**flinch** *flinches flinching flinched (v)* to make a quick movement away from a source of pain. *Di flinched as the nurse approached with a needle.*
+
+**fling** *flinging flung (v)* to throw something violently.
