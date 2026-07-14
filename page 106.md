@@ -147,5 +147,71 @@
 **gape** *gaping gaped*
 1. *(v)* to open your mouth wide, usually with surprise. *The children gaped at all the presents.*
 2. *(v)* to split or hang open. *My shirt is gaping at the seams.*
+3. *(n)* the part of a beak that opens. See **dolphin**
+
+---
+
+**garage**
+1. *(n)* a small building used for storing vehicles.
+2. *(n)* a place where petrol is sold and vehicles are repaired.
+
+---
+
+**garbage**
+1. *(n) (US)* unwanted things or waste material, usually from the home (rubbish, UK).
+2. *(n) (US)* nonsense.
+
+---
+
+**garbled** *(adj)* If you receive a **garbled** message, it is mixed up and does not make sense.
+
+---
+
+**garden** *(n)* a place where flowers, vegetables, shrubs, etc. are grown. **gardener** *(n)*, **gardening** *(n)*, **garden** *(v)*
+
+---
+
+**gargle** *gargling gargled* *(v)* to move a liquid around your throat without swallowing it.
+
+---
+
+**gargoyle** *(n)* a grotesque stone head or figure, carved below the roof of old buildings, such as churches. Gargoyles were often used as waterspouts.
+
+---
+
+**garish** *(gair-ish) (adj)* brightly coloured and over-decorated. **garishly** *(adv)*
+
+---
+
+**garland** *(n)* a ring of flowers, often worn around the neck or on the head.
+
+---
+
+**garlic**
+1. *(n)* a strong-smelling plant very like an onion.
+2. *(n)* the strong-tasting bulb of the garlic plant, used crushed up in cooking to add flavour to food.
+
+---
+
+**garment** *(n)* a piece of clothing.
+
+---
+
+**garnish** *garnishes garnishing garnished* *(v)* to decorate food with small amounts of other food or herbs. **garnish** *(n)*
+
+---
+
+**garrison** *(n)* a group of soldiers based in a town and ready to defend it. **garrison** *(v)*
+
+---
+
+**garter** *(n)* a piece of elastic worn around the top of socks or stockings to stop them slipping down.
+
+---
+
+**gas** *gases* or *gasses*
+1. *(n)* an air-like substance that will spread to fill any space that contains it. *Hydrogen gas.* **gaseous** *(adj)* See **molecule**.
+2. *(n)* a gas that is used as a fuel. Gas can be made from coal and can also be found underground.
+3. *(n) (US)* a liquid fuel used in many vehicles. Gas is short for gasoline (petrol, UK).
 
 ---
