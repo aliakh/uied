@@ -60,3 +60,60 @@
 **formulate** *formulating formulated (v)* If you **formulate** a theory, you work out an idea and then state it clearly.
 
 ---
+
+**forsake** *forsaking forsook forsaken (v)* to abandon or give up someone or something.
+
+---
+
+**fort** *(n)* a building like a castle, which is strongly built to survive attacks.
+2. If you **hold the fort**, you look after things for someone else while they are away.
+
+---
+
+**forte** *(far-tay)*
+1. *(n)* Your **forte** is your strong point.
+2. *(adv)* loudly. **Forte** is an Italian word, used as an instruction in music.
+
+---
+
+**forthcoming**
+1. *(adj)* coming soon. *Forthcoming attractions.*
+2. *(adj)* If someone is not very **forthcoming**, they do not say much.
+
+---
+
+**fortify** *fortifies fortifying fortified*
+1. *(v)* to make a place stronger against attack. *The soldiers fortified the castle's defences.* **fortification** *(n)*.
+2. *(v)* If you **fortify** yourself, you make yourself feel better and stronger. *The climbers fortified themselves with hot soup.*
+
+---
+
+**fortnight** *(n)* a two-week period. **fortnightly** *(adj)*, **fortnightly** *(adv)*.
+
+---
+
+**fortress** *fortresses (n)* a castle or town that is strengthened against attack.
+
+---
+
+**fortunate** *(adj)* lucky. **fortunately** *(adv)*.
+
+---
+
+**fortune**
+1. *(n)* chance, or good luck.
+2. *(n)* a large amount of money.
+3. *(n)* fate, or destiny.
+
+---
+
+**forward**
+1. **forward** or **forwards** *(adv)* toward the front, or ahead. *We crept forward cautiously.* **forward** *(adj)*.
+2. *(adj)* toward the future. *I am looking forward to the holidays.*
+3. *(n)* a player in football, hockey, etc. who plays in an attacking position and tries to score goals.
+
+---
+
+**fossil** *(n)* the remains or trace of an animal or a plant from millions of years ago, preserved as rock. *Examples of different types of fossils are shown in this picture.* **fossilized** *(adj)*.
+
+---
