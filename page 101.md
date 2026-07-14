@@ -35,3 +35,47 @@
 **food web** *(n)* the complex network of food chains in an ecosystem.
 
 ---
+
+**fool** *fooling fooled*
+1. *(n)* a silly person. **foolishness** *(n)*, **foolish** *(adj)*.
+2. *(v)* to trick someone. *The dealer fooled Josie into buying a fake watch.*
+
+---
+
+**foolproof** *(adj)* Something that is **foolproof** is very simple to use, and cannot easily go wrong.
+
+---
+
+**foot** *feet*
+1. *(n)* one of the two parts of your body that you walk on.
+2. *(n)* the bottom, or the lower end of something. *The foot of the bed.*
+
+---
+
+**football**
+1. *(n)* an outdoor ball game played by two teams who try to score goals. Soccer, rugby football, and American football are all types of football. *The picture shows an American football player with part of his clothing cut away.* **footballer** *(n)*.
+2. *(n)* the ball used to play football.
+
+---
+
+**footnote** *(n)* a note at the bottom of a page.
+
+---
+
+**forage** *foraging foraged (v)* to go in search of food. *The outlaws foraged for berries in the wood.*
+
+---
+
+**forbid** *forbidding forbade forbidden (v)* to tell someone not to do something. **forbidden** *(adj)*.
+
+---
+
+**forbidding** *(adj)* unfriendly, or off-putting. **forbiddingly** *(adv)*.
+
+---
+
+**force** *forcing forced*
+1. *(v)* If you **force** someone to do something, you make them do it. **forceful** *(adj)*, **forcefully** *(adv)*.
+2. *(n)* strength, or power.
+
+---
