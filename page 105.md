@@ -110,3 +110,63 @@
 2. *(v)* to supply something. *Can you furnish any proof of your age?*
 
 ---
+
+**furniture** *(n)* large, movable things such as chairs, tables, and beds which are needed in a home.
+
+---
+
+**furrow** *(n)* the groove cut by a plough when it turns over the soil.
+
+---
+
+**further education** *(n)* education for people who have left school but who are not at university.
+
+---
+
+**furthermore** *(adv)* in addition, or as well.
+
+---
+
+**furtive** *(adj)* sly and cautious. *A furtive glance.* **furtiveness** *(n)*.
+
+---
+
+**fury** *furies (n)* violent anger.
+
+---
+
+**fuse** *fusing fused*
+1. *(v)* to join two pieces of metal, plastic, etc. by heating them.
+2. *(n)* a safety device in electrical equipment which cuts off the power in an emergency. If too much current is flowing in the circuit, the wire in the fuse melts, or blows, and the circuit is broken.
+3. *(v)* If a piece of electrical equipment **fuses**, the fuse blows.
+4. *(n)* a string or wick leading from a bomb, which is lit to make the bomb explode.
+
+---
+
+**fuselage** *(fyoo-zil-ar) (n)* the body of an aircraft.
+
+---
+
+**fusion** *(n)* the joining together of two pieces of metal, plastic, etc., caused by heating.
+
+---
+
+**fuss** *fusses fussing fussed*
+1. *(v)* to be unnecessarily worried or excited about something. **fussy** *(adj)*.
+2. *(n)* more talk or activity than is necessary. *Carla always makes a fuss about having visitors.*
+
+---
+
+**futile** *(adj)* If an action is **futile**, it is useless and a waste of time. **futility** *(n)*.
+
+---
+
+**future** *(n)* the time to come. **future** *(adj)*.
+
+---
+
+**fuzz**
+1. *(n)* short, soft hair. **fuzzy** *(adj)*.
+2. **the fuzz** *(n) (slang)* the police.
+
+---
