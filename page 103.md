@@ -74,3 +74,73 @@
 **frail** *frailer frailest (adj)* feeble and weak. **frailty** *(n)*.
 
 ---
+
+**frame** *framing framed*
+1. *(n)* a basic structure over which something is built. *Our house has a timber frame.*
+2. *(n)* a border that surrounds something. *A picture frame.*
+3. *(v)* to put something in a frame.
+4. *(v) (informal)* If someone **frames** an innocent person, they make them seem guilty by giving false information about them.
+
+---
+
+**framework** *(n)* the structure of a building or other object.
+
+---
+
+**franc** *(n)* the main unit of money in Switzerland.
+
+---
+
+**frank** *franker frankest (adj)* open and honest. **frankness** *(n)*, **frankly** *(adv)*.
+
+---
+
+**frantic** *(adj)* wildly anxious, or wildly excited. **frantically** *(adv)*.
+
+---
+
+**fraud**
+1. *(n)* If you practise **fraud**, you gain money by tricking people. **fraudulent** *(adj)*, **fraudulently** *(adv)*.
+2. *(n)* If someone is a **fraud**, they pretend to be something they are not.
+
+---
+
+**freak**
+1. *(adj)* very unusual. *Freak weather conditions.*
+2. *(n)* an unnatural or strange person or animal.
+3. *(n) (informal)* someone who is very enthusiastic about something. *A health freak.*
+
+---
+
+**freckle** *(n)* a small, light brown spot on your skin, caused by the sun. **freckled** *(adj)*, **freckly** *(adj)*.
+
+---
+
+**free** *freeing freed; freer freest*
+1. *(adj)* If a person or animal is **free**, they can do what they like. **freely** *(adv)*.
+2. *(v)* If you **free** a person or animal, you let them go from a prison or cage.
+3. *(adj)* If something is **free**, it does not cost anything.
+
+---
+
+**freedom** *(n)* the right to do and say what you like.
+
+---
+
+**freelance** *(adj)* If you are a **freelance** worker, you do not earn a salary, but are paid for each job that you do. **freelancer** *(n)*.
+
+---
+
+**free-range** *(adj)* **Free-range** animals are allowed to feed and wander freely.
+
+---
+
+**freeway** *(n) (US)* a main road with several lanes.
+
+---
+
+**freeze** *freezing froze frozen*
+1. *(v)* to become solid or icy at a very low temperature. *Water freezes at 0°C.* **freezing** *(adj)*.
+2. *(v)* to stop still because you are frightened.
+
+---
