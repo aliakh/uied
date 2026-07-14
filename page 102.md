@@ -28,3 +28,35 @@
 2. *(adj)* proper and not casual. *Formal clothes.* **formally** *(adv)*.
 
 ---
+
+**format** *formatting formatted*
+1. *(v)* to prepare a computer disk to be used.
+2. *(n)* the shape or style of something. *The new magazine has a bolder, larger format than the old one.*
+
+---
+
+**formation**
+1. *(n)* the process of making something. *We are studying the formation of crystals.*
+2. *(n)* a pattern, or a shape. *Look at that wonderful cloud formation!*
+
+---
+
+**former**
+1. *(n)* the first of two things that you have been talking about. *I am fond of spiders and snakes, but I really prefer the former.*
+2. *(adj)* previous, or earlier. *Our former house.* **formerly** *(adv)*.
+
+---
+
+**formidable** *(adj)* difficult, or frightening. *A formidable challenge.* **formidably** *(adv)*.
+
+---
+
+**formula** *formulas* or *formulae*
+1. *(n)* a rule in science or maths that is written with numbers and symbols.
+2. *(n)* a suggested set of actions. *What's your formula for success?*
+
+---
+
+**formulate** *formulating formulated (v)* If you **formulate** a theory, you work out an idea and then state it clearly.
+
+---
