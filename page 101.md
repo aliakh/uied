@@ -77,5 +77,70 @@
 **force** *forcing forced*
 1. *(v)* If you **force** someone to do something, you make them do it. **forceful** *(adj)*, **forcefully** *(adv)*.
 2. *(n)* strength, or power.
+3. *(n)* In physics, a **force** is any action that alters the shape or the movement of an object.
+4. *(n)* an army, or other team of people. *The police force.*
+
+---
+
+**forceps** *(plural n)* an instrument, like tongs, used for holding or lifting, especially in operations.
+
+---
+
+**ford** *(n)* a shallow part of a stream or river that you can cross on foot or in a vehicle. **ford** *(v)*.
+
+---
+
+**forecast** *forecasting forecast* or *forecasted (v)* to say what you think will happen in the future. *The weatherman forecasts rain for tomorrow.* **forecast** *(n)*, **forecaster** *(n)*.
+
+---
+
+**foreground** *(n)* the part of a picture that is in front of the main subject. *This painting has a cottage in the foreground.*
+
+---
+
+**forehead** *(n)* the top part of your face between your hair and your eyes.
+
+---
+
+**foreign**
+1. *(adj)* to do with, or coming from another country. **foreigner** *(n)*.
+2. *(adj)* If something is **foreign** to you, it is strange or unnatural.
+
+---
+
+**forensic** *(adj)* using science to help investigate or solve crimes. A forensic investigation uses scientific information such as fingerprints, blood tests, handwriting analysis, etc.
+
+---
+
+**foresee** *foreseeing foresaw foreseen (v)* to expect or predict that something will happen. **foresight** *(n)*, **foreseeable** *(adj)*.
+
+---
+
+**forest** *(n)* a large area thickly covered with trees. **forested** *(adj)*.
+
+---
+
+**forever** *(adv)* always, or continually. *Matt is forever asking questions.*
+
+---
+
+**forfeit** *forfeiting forfeited*
+1. *(n)* a penalty. *If you lose the game, you have to pay a forfeit.*
+2. *(v)* to give up the right to something. *If you are late, you will forfeit your place in the team.*
+
+---
+
+**forge** *forging forged*
+1. *(v)* to make illegal copies of paintings, money, etc. **forger** *(n)*, **forgery** *(n)*.
+2. *(v)* If you **forge ahead**, you move forward or make progress.
+3. *(n)* a blacksmith's shop.
+
+---
+
+**forget** *forgetting forgot forgotten (v)* If you **forget** something, you do not remember it. **forgetfulness** *(n)*, **forgetful** *(adj)*.
+
+---
+
+**forgive** *forgiving forgave forgiven (v)* to pardon someone, or to stop blaming them for something. **forgiveness** *(n)*, **forgiving** *(adj)*.
 
 ---
