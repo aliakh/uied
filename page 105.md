@@ -71,3 +71,42 @@
 **funfair** *(n)* an outdoor entertainment with rides, amusements, and stalls.
 
 ---
+
+**fungus** *fungi* or *funguses (n)* a type of plant that has no leaves, flowers, or roots. Mushrooms and toadstools are both fungi. *Many fungi are extremely poisonous.*
+
+---
+
+**funnel** *funnelling funnelled*
+1. *(n)* an open cone that narrows to a tube, used for pouring liquids and powders into narrow-necked containers. See **apparatus**.
+2. *(v)* to pour liquids and powders through a funnel.
+3. *(n)* a chimney on a ship.
+
+---
+
+**funny** *funnier funniest*
+1. *(adj)* amusing. **funnily** *(adv)*.
+2. *(adj)* strange. *There's a funny smell in the kitchen.* **funnily** *(adv)*.
+
+---
+
+**fur** *(n)* the soft, hairy coat of an animal. **furry** *(adj)*.
+
+---
+
+**furious** *(adj)* extremely angry. **furiously** *(adv)*.
+
+---
+
+**furlong** *(n) (old-fashioned)* a distance of 201m, or 220yds.
+
+---
+
+**furnace** *(n)* an extremely hot oven, used to melt metal, glass, etc. *The picture shows how pure iron is created from iron ore in a furnace. Blasts of hot air and burning coke raise the temperature of the iron mixture to melting point, when it separates into pure iron and waste products, or slag.*
+
+---
+
+**furnish** *furnishes furnishing furnished*
+1. *(v)* to equip a room or house with carpets, curtains, and furniture. **furnishings** *(plural n)*.
+2. *(v)* to supply something. *Can you furnish any proof of your age?*
+
+---
