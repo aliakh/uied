@@ -103,3 +103,21 @@
 **frugal** *(adj)* If you are **frugal**, you are very careful not to waste anything. **frugality** *(n)*, **frugally** *(adv)*.
 
 ---
+
+**fruit** *fruit* or *fruits*
+1. *(n)* an edible part of a plant or tree, containing seeds. **fruity** *(adj)*.
+2. *(n)* the result of something. *This book is the fruit of many years' hard work.*
+
+---
+
+**fruitful** *(adj)* successful, or useful. **fruitfulness** *(n)*, **fruitfully** *(adv)*.
+
+---
+
+**fruitless** *(adj)* unsuccessful, or useless. **fruitlessly** *(adv)*.
+
+---
+
+**fruit machine** *(n)* a gambling machine that people operate in order to try to win money.
+
+---
