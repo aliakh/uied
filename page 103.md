@@ -144,3 +144,70 @@
 2. *(v)* to stop still because you are frightened.
 
 ---
+
+**freezer** *(n)* a large refrigerator which is kept very cold so that you can store food in it for several months.
+
+---
+
+**freight** *(frayt) (n)* goods or cargo carried by trains, ships, planes, etc.
+
+---
+
+**freighter** *(fray-ter) (n)* a plane or ship that carries goods.
+
+---
+
+**frenzy** *frenzies (n)* If you are in a **frenzy**, you are wildly excited or angry about something. **frenzied** *(adj)*.
+
+---
+
+**frequency** *frequencies*
+1. *(n)* the number of times that something happens. *The frequency of road accidents has increased.*
+2. *(n)* the number of radio waves per second of a radio signal. *High frequency radio signals.*
+
+---
+
+**frequent**
+1. *(free-kwent) (adj)* common, or happening often. **frequently** *(adv)*.
+2. *(free-kwent) (v)* to visit somewhere often or regularly. *Mark frequents the local park.*
+
+---
+
+**fresco** *frescos* or *frescoes (n)* a painting made on a wall or ceiling while the plaster is still wet. *This ancient Minoan fresco shows a bull-leaping ritual.*
+
+---
+
+**fresh** *fresher freshest*
+1. *(adj)* clean, or new. **freshly** *(adv)*.
+2. *(adj)* not frozen, or not tinned. *Fresh fruit.*
+3. *(adj)* cool. *A fresh sea breeze.*
+
+---
+
+**freshwater** *(adj)* to do with, or living in water that does not contain salt. *Freshwater fish.*
+
+---
+
+**fret** *fretting fretted*
+1. *(v)* to worry or get annoyed about something. **fretfulness** *(n)*, **fretful** *(adj)*, **fretfully** *(adv)*.
+2. *(n)* one of the bars on the fingerboard of a stringed musical instrument, such as a guitar. See **guitar**.
+
+---
+
+**friction**
+1. *(n)* the force which slows objects down when they rub against each other.
+2. *(n)* disagreement, or arguing.
+
+---
+
+**fridge** short for **refrigerator**.
+
+---
+
+**friend** *(n)* someone whom you enjoy being with and know well. **friendship** *(n)*.
+
+---
+
+**friendly** *friendlier friendliest (adj)* kind and helpful. **friendliness** *(n)*.
+
+---
