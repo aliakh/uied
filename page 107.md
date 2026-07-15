@@ -124,3 +124,56 @@
 **generous** *(adj)* People who are generous are happy to use their time and money to help others. **generosity** *(n)* **generously** *(adv)*
 
 ---
+
+**genetics** *(singular n)* the study of the ways that personal characteristics are passed from one generation to another through genes. **genetic** *(adj)*, **genetically** *(adv)*
+
+---
+
+**genitals** *(plural n)* the sex organs on the outside of the body.
+
+---
+
+**genius** *(jee-nee-us)* *geniuses* *(n)* an unusually clever or talented person.
+
+---
+
+**genome** *(jee-nome)* *(n)* all the DNA making up a living plant or animal. *Scientists are studying the human genome to help them learn more about human diseases.*
+
+---
+
+**gentle** *gentler gentlest*
+1. *(adj)* not rough. **gentleness** *(n)*, **gently** *(adv)*
+2. *(adj)* kind and sensitive.
+3. *(adj)* not extreme. *A gentle slope.*
+
+---
+
+**gentleman** *gentlemen*
+1. *(n)* a polite name for a man.
+2. *(n)* a man with good manners.
+
+---
+
+**genuine** *(jen-yoo-in)*
+1. *(adj)* real and not fake.
+2. *(adj)* If someone is **genuine**, they behave in a natural way and do not pretend. **genuinely** *(adv)*
+
+---
+
+**geography** *(n)* the study of the Earth, including its people, resources, climate, and physical features. **geographer** *(n)*, **geographical** *(adj)*
+
+---
+
+**geology** *(n)* the study of the Earth's layers of soil and rock. **geologist** *(n)*, **geological** *(adj)*
+
+---
+
+**geometric**
+1. *(adj)* to do with geometry.
+2. *(adj)* A **geometric** shape is a regular shape, such as a circle, triangle, rectangle, or square.
+
+---
+
+**geometry** *(n)* the branch of mathematics which deals with lines, angles, shapes, etc.
+
+---
