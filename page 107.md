@@ -67,3 +67,60 @@
 **gaze** *gazing gazed* *(v)* to stare at something steadily. **gaze** *(n)*
 
 ---
+
+**gazetteer** *(n)* an index of places at the back of a map or atlas.
+
+---
+
+**gear**
+1. **gears** *(plural n)* a set of toothed wheels which fit together and pass on or change the movement of a machine.
+2. *(n)* equipment, or clothing.
+
+---
+
+**gel** *(jel)* *(n)* a thick, jelly-like substance. *Hair gel.*
+
+---
+
+**gelatine** *(n)* a clear, tasteless substance that you add to liquids to make them become solid.
+
+---
+
+**gem** *(n)* a precious stone, such as a diamond, ruby, or emerald.
+
+---
+
+**gender**
+1. *(n)* the sex of a person or creature.
+2. *(n)* All nouns have genders. The four genders are masculine, feminine, neuter (neither masculine nor feminine), and common (either masculine or feminine). In some languages, such as French and German, the gender of a noun changes the way that it is used.
+
+---
+
+**gene** *(jeen)* *(n)* one of the parts of the cells of all living things. Genes are passed from parents to children and control how you look and the way in which you grow. **genetic** *(adj)*
+
+---
+
+**genealogy** *(jeen-ee-al-uh-jee)* *genealogies*
+1. *(singular n)* the study of family history. **genealogist** *(n)*
+2. *(n)* the history of a family.
+
+---
+
+**general**
+1. *(adj)* to do with everybody or everything. *General knowledge.* **generally** *(adv)*
+2. *(adj)* not detailed, or not specialized.
+3. *(n)* a very high-ranking army officer.
+
+---
+
+**generation** *(n)* all the people born around the same time.
+
+---
+
+**generator** *(n)* a machine which produces electricity.
+
+---
+
+**generous** *(adj)* People who are generous are happy to use their time and money to help others. **generosity** *(n)* **generously** *(adv)*
+
+---
