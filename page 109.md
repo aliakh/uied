@@ -88,3 +88,74 @@
 **glider** *(n)* a very light aircraft, which flies by floating and rising on air currents instead of by engine power.
 
 ---
+
+**glimmer** *glimmering glimmered* *(v)* to shine faintly. **glimmer** *(n)*
+
+---
+
+**glimpse** *glimpsing glimpsed* *(v)* to see something briefly. **glimpse** *(n)*
+
+---
+
+**glint** *glinting glinted* *(v)* to sparkle, or to flash. **glint** *(n)*
+
+---
+
+**glisten** *glistening glistened* *(v)* to shine in a sparkling way.
+
+---
+
+**glitter** *glittering glittered* *(v)* to sparkle with many tiny lights or reflections.
+
+---
+
+**gloat** *gloating gloated* *(v)* to delight in your own good luck, or in someone else's bad luck.
+
+---
+
+**global warming** *(n)* a gradual rise in the temperature of the Earth's atmosphere, caused by an increase in the greenhouse effect. See **greenhouse effect**.
+
+---
+
+**globe**
+1. *(n)* a round model of the world.
+2. *(n)* the world. **global** *(adj)*
+3. *(n)* anything shaped like a round ball. **globular** *(adj)*
+
+---
+
+**gloomy** *gloomier gloomiest*
+1. *(adj)* dull and dark. *A gloomy dungeon.* **gloom** *(n)*
+2. *(adj)* If you are **gloomy**, you feel sad and pessimistic. **gloom** *(n)*
+
+---
+
+**glory** *glories*
+1. *(n)* fame and admiration. *After the victory, the team enjoyed their glory.* **glorious** *(adj)*
+2. *(n)* a beautiful and impressive sight. *The glories of Venice.* **glorious** *(adj)*
+
+---
+
+**gloss** *(n)* a shine on a surface. **glossy** *(adj)*
+
+---
+
+**glossary** *glossaries* *(n)* A **glossary** explains the meaning of technical words and phrases used in a book.
+
+---
+
+**glove** *(n)* a warm or protective hand covering.
+
+---
+
+**glow** *glowing glowed* *(v)* If something **glows**, it gives off a steady light, often because it is hot. **glow** *(n)*, **glowing** *(adj)*
+
+---
+
+**glow-worm** *(n)* a small beetle whose tail gives off a green glow in the dark. See **insect**.
+
+---
+
+**glucose** *(n)* a natural sugar found in plants which gives energy to living things.
+
+---
