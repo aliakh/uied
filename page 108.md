@@ -93,3 +93,65 @@
 **gig** *(n)* *(Informal)* a booking for a musician or band to play in public.
 
 ---
+
+**gigabyte** *(n)* a unit used to measure the capacity of a computer's memory.
+
+---
+
+**gigantic** *(gy-gan-tik)* *(adj)* huge, or enormous. **gigantically** *(adv)*
+
+---
+
+**giggle** *giggling giggled* *(v)* to laugh in a nervous, high-pitched way. **giggle** *(n)*, **giggly** *(adj)*
+
+---
+
+**gill** *(n)* one of the two organs on the sides of a fish through which the fish breathes. *The gill filaments are filled with blood. As water flows over them, oxygen from the water passes into the blood and carbon dioxide from the blood passes into the water.* Also see **fish**.
+
+---
+
+**gilt** *(adj)* A **gilt** object is decorated with a thin coating of gold leaf or gold paint. **gild** *(v)*
+
+---
+
+**gimmick** *(n)* something unusual, used to get people's attention. *The entertainer's gimmick was a flashing bow-tie.* **gimmicky** *(adj)*
+
+---
+
+**gin** *(n)* a strong alcoholic drink made from grain and juniper berries.
+
+---
+
+**ginger**
+1. *(n)* a plant root used to give a hot, spicy flavour to food and drink.
+2. *(n)* a reddish-brown colour. **ginger** *(adj)*, **gingery** *(adj)*
+
+---
+
+**gingerly** *(adv)* cautiously and carefully.
+
+---
+
+**gingham** *(n)* checked cotton cloth.
+
+---
+
+**gipsy** see **gypsy**
+
+---
+
+**giraffe** *(n)* an African mammal with a very long neck and legs, and dark blotches on its skin. The giraffe is the tallest animal in the world.
+
+---
+
+**girl** *(n)* a female child or young woman.
+
+---
+
+**girlfriend** *(n)* the girl or woman with whom a boy or man is having a romantic relationship.
+
+---
+
+**girth** *(n)* the measurement around something.
+
+---
