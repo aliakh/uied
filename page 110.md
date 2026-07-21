@@ -109,3 +109,52 @@
 **golf** *(n)* a game in which players use clubs to hit a small, white ball round a special course. *This picture shows four types of clubs used for playing golf: a wood for striking the ball long distances, an iron for medium to short-range shots, a wedge for lifting the ball high in the air, and a putter for tapping the ball into the hole on the green.* **golfer** *(n)*, **golfing** *(n)*
 
 ---
+
+**gondola** *(n)* a light boat with high pointed ends, used on the canals of Venice. Gondolas are moved through the water by a gondolier using a single oar.
+
+---
+
+**gong** *(n)* a disc of metal that makes a hollow, echoing sound when it is hit with a hammer.
+
+---
+
+**good** *better best*
+1. *(adj)* of high quality, or deserving praise. *A good teacher. A good book.*
+2. *(adj)* kind, or virtuous. *A good deed.*
+3. *(adj)* suitable. *A good fit.*
+4. *(adj)* well-behaved. *Marigold is such a good girl!*
+5. *(adj)* fit and well. *I'm feeling good!*
+6. *(adj)* If something is **good** for you, it improves your health or behaviour.
+
+---
+
+**goodbye** *(interject)* a word said to someone who is leaving.
+
+---
+
+**goods** *(plural n)* a general name for things which are sold or things which someone owns. *Leather goods.*
+
+---
+
+**gooey** *gooier gooiest* *(adj)* *(Informal)* sticky. **gooeyness** *(n)*
+
+---
+
+**goose** *geese* *(n)* a large, long-necked bird with webbed feet. See **bird**.
+
+---
+
+**goose pimples** *(plural n)* tiny bumps on your skin which appear when you are cold or frightened.
+
+---
+
+**gore** *goring gored*
+1. *(n)* *(old-fashioned)* blood that flows from a wound.
+2. *(v)* If someone is **gored** by a bull, they are pierced by its horns.
+
+---
+
+**gorge** *gorging gorged*
+1. *(n)* a deep valley with steep, rocky sides. See **river**.
+
+---
