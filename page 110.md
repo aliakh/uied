@@ -74,3 +74,38 @@
 **God** *(n)* In Christianity, Islam, and Judaism, **God** is the creator and ruler of the universe.
 
 ---
+
+**god** *(n)* a supernatural being that is worshipped.
+
+---
+
+**goddess** *goddesses* *(n)* a female supernatural being that is worshipped. *This picture shows ancient Egyptian gods and goddesses.*
+
+---
+
+**godparent** *(n)* someone who promises their support for a child when the child is baptized into the Christian religion.
+
+---
+
+**goggles** *(plural n)* special glasses that fit tightly round your eyes to protect them. *Swimming goggles.*
+
+---
+
+**go-kart** *(n)* a very low, small, open vehicle, built for racing.
+
+---
+
+**gold**
+1. *(n)* a precious metal used to make jewellery, and sometimes for money.
+2. *(n)* a warm, yellow colour.
+**gold** *(adj)*, **golden** *(adj)*
+
+---
+
+**goldfish** *goldfish* or *goldfishes* *(n)* an orange-coloured fish, often kept in ponds and aquariums.
+
+---
+
+**golf** *(n)* a game in which players use clubs to hit a small, white ball round a special course. *This picture shows four types of clubs used for playing golf: a wood for striking the ball long distances, an iron for medium to short-range shots, a wedge for lifting the ball high in the air, and a putter for tapping the ball into the hole on the green.* **golfer** *(n)*, **golfing** *(n)*
+
+---
