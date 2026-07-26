@@ -101,3 +101,63 @@ If you are **greedy**, you want more of something than you need. **greed** *(n)*
 **grievance** *(n)* If you have a **grievance**, you have a real or imagined reason to feel angry or annoyed about something.
 
 ---
+
+**grieve** *grieving grieved* *(v)* to feel very sad, usually because someone whom you love has died.
+
+---
+
+**grill** *grilling grilled*
+1. *(n)* the part of a cooker that heats food from above.
+2. *(v)* to cook food under a grill.
+3. *(v) (Informal)* to ask someone lots of detailed questions in order to find out information.
+
+---
+
+**grim** *grimmer grimmest* *(adj)* gloomy, stern, and unpleasant. *A grim expression.* **grimly** *(adv)*
+
+---
+
+**grime** *(n)* thick dirt. **grimy** *(adj)*
+
+---
+
+**grin** *grinning grinned* *(v)* to give a large, cheerful smile. **grin** *(n)*
+
+---
+
+**grind** *grinding ground* *(v)* to crush something into a powder.
+
+---
+
+**grip** *gripping gripped*
+1. *(v)* to hold something very tightly. **grip** *(n)*
+2. *(v)* if something **grips** you, it holds your attention completely because it is so exciting. **gripping** *(adj)*
+
+---
+
+**gristle** *(n)* a tough substance, sometimes found in meat.
+
+---
+
+**grizzle** *grizzling grizzled* *(v)* to keep on whining and complaining.
+
+---
+
+**groan** *groaning groaned* *(v)* to make a long, low sound, showing that you are in pain or are unhappy. **groan** *(n)*
+
+---
+
+**grocer** *(n)* someone who owns a shop selling food and household goods.
+
+---
+
+**groin** *(n)* the hollow between the top of your leg and your stomach.
+
+---
+
+**groom** *grooming groomed*
+1. *(n)* someone who looks after horses.
+2. *(v)* to brush and clean an animal, such as a horse. **grooming** *(n)*
+3. *(n)* a man who is about to get married or has just been married.
+
+---
