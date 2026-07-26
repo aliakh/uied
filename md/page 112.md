@@ -63,5 +63,41 @@ If you are **greedy**, you want more of something than you need. **greed** *(n)*
 1. *(n)* the colour of grass or leaves **green** *(adj)*
 2. *(adj)* Someone who is **green** is concerned with protecting the environment.
 3. *(n)* an area of grass in a public place. *The village green.*
+4. *(n)* an area of ground used for an activity or sport. *A bowling green.*
+5. **greenhouse** *(n)* a glass building used for growing plants.
+6. **greenhouse effect** *(n)* the warming of the atmosphere around the Earth, caused by gases such as carbon dioxide, which collect in the atmosphere and prevent the Sun's heat from escaping.
+7. **greenhouse gases** *(plural n)* gases such as carbon dioxide, methane, and CFCs that are found in the Earth's atmosphere and help to hold heat in.
+
+---
+
+**greet** *greeting greeted*
+1. *(v)* to say something friendly or welcoming to someone when you meet them. **greeting** *(n)*
+2. *(v)* to react to something in a particular way. *Harriet greeted the news with horror.*
+
+---
+
+**grenade** *(n)* a small bomb that is thrown by hand or fired from a rifle.
+
+---
+
+**grey** *(n)* the colour between black and white, like the colour of the sky on a rainy day. **grey** *(adj)*
+
+---
+
+**grid**
+1. *(n)* a set of straight lines that cross each other at right angles to form a regular pattern of squares.
+2. **national grid** *(n)* the network of wires and cables through which electricity is supplied to all parts of the country.
+
+---
+
+**gridiron** *(n)* (US) a playing field marked out for American football.
+
+---
+
+**grief** *(n)* a feeling of great sadness.
+
+---
+
+**grievance** *(n)* If you have a **grievance**, you have a real or imagined reason to feel angry or annoyed about something.
 
 ---
