@@ -131,3 +131,57 @@
 6. *(v)* If you **guard against** something, you try to stop it happening.
 
 ---
+
+**guardian**
+1. *(n)* someone who is not the parent of a child but who has the legal responsibility to look after them.
+2. *(n)* someone who guards or protects something. **guardian** *(adj)*
+
+---
+
+**guard's van** *(n)* the last compartment on a train, kept for railway officials in charge of the train.
+
+---
+
+**guerrilla** *(ger-il-er) (n)* a member of a small army that fights an official army by launching surprise attacks. **guerrilla** *(adj)*
+
+---
+
+**guess** *(gess) guesses guessing guessed*
+1. *(v)* to give an answer that may be right but which you cannot be sure about. *I guessed at the answer instead of working it out.* **guess** *(n)*
+2. *(v) (US)* to think or believe something. *I guess Karen will arrive shortly.*
+
+---
+
+**guest**
+1. *(n)* someone who has been invited to visit you or to stay in your home.
+2. *(n)* someone staying in a hotel.
+
+---
+
+**guide** *guiding guided*
+1. *(v)* to help someone, usually by showing them around a place, or by leading them across difficult country. **guide** *(n)*
+2. *(n)* a book containing maps and information about a place.
+
+**guidebook** *(n)*
+3. **guide-dog** *(n)* a dog trained to lead a blind person.
+4. *(n)* a member of the Guide Association.
+
+---
+
+**guillotine** *(gil-oh-teen)*
+1. *(n)* a large machine with a sharp blade, used in the past to behead criminals.
+2. *(n)* an instrument with a sharp blade, used for cutting paper.
+
+---
+
+**guilty** *guiltier guiltiest*
+1. *(adj)* If you are **guilty**, you have committed a crime or done something wrong. **guilt** *(n)*
+2. *(adj)* If you feel **guilty**, you feel bad because you have done something wrong or have failed to do something. **guilt** *(n),* **guiltily** *(adv)*
+
+---
+
+**guinea pig** *(gin-ee pig)*
+1. *(n)* a small mammal with smooth fur, short ears, and a very short tail. Guinea pigs are often kept as pets.
+2. *(n)* a person who is used in an experiment.
+
+---
