@@ -115,3 +115,66 @@
 **gyroscope** *(n)* a wheel which spins inside a frame and causes the frame to balance in any position. Gyroscopes are used to help keep ships and aircraft steady.
 
 ---
+
+**habit**
+1. *(n)* something that you do regularly, often without thinking about it.
+2. *(n)* a piece of clothing, like a long loose dress, worn by monks and nuns.
+
+---
+
+**habitable** *(adj)* If a building is **habitable**, it is safe, warm, and clean enough to live in.
+
+---
+
+**habitat** *(n)* the place and conditions in which a plant or an animal lives naturally.
+
+---
+
+**habitually** *(adv)* usually, or normally. *Tootsie is habitually optimistic.* **habitual** *(adj).*
+
+---
+
+**hack** *hacking hacked*
+1. *(v)* to chop or cut something roughly.
+2. *(v)* If you **hack** into a computer system, you manage to get information from it illegally. **hacker** *(n).*
+3. *(n)* a long, steady ride on horseback.
+
+---
+
+**haemoglobin** or **hemoglobin** *(hee-mer-glow-bin) (n)* a substance found in your red blood cells, which contains iron and carries oxygen around your body.
+
+---
+
+**haemophilia** or **hemophilia** *(hee-mer-fil-ee-a) (n)* If people suffer from **haemophilia**, their blood does not clot, so they bleed severely when they cut themselves. **haemophiliac** *(n).*
+
+---
+
+**haemorrhage** or **hemorrhage** *(ham-er-ij) (n)* severe bleeding, usually inside someone's body.
+
+---
+
+**haggard** *(adj)* Someone who is **haggard** looks thin, tired, and worried.
+
+---
+
+**haggis** *(n)* a Scottish food made from the chopped heart, liver, kidneys, etc. of a sheep, mixed with oatmeal and boiled in a bag made from a sheep's stomach.
+
+---
+
+**haggle** *haggling haggled (v)* to argue, usually about the price of something.
+
+---
+
+**haiku** *(hy-coo) (n)* a short Japanese poem in three parts.
+
+---
+
+**hail** *hailing hailed*
+1. *(v)* When it **hails**, small pieces of frozen rain fall from the sky. **hail** *(n).*
+2. *(v)* to attract someone's attention. *Travis hailed a taxi.*
+
+---
+
+**hair** *(n)* the mass of fine, soft strands that grow on your head or body, or on the body of an animal.
+
+---
