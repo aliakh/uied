@@ -135,3 +135,62 @@
 **handicap**
 1. *(n)* If someone has a **handicap**, they are disabled in some way. **handicapped** *(adj)*
 2. *(n)* something that makes it difficult for you to do something. *Laurie's platform shoes were a great handicap in the race.*
+3. *(n)* a disadvantage given to the more skilful competitors in a sport, in order to make the competition more equal. *A golf handicap.*
+
+---
+
+**handicraft** *(n)* a skill, such as pottery or sewing, that involves making things with your hands.
+
+---
+
+**handkerchief** *(n)* a small square of cloth that you use for blowing your nose.
+
+---
+
+**handle** *handling handled*
+1. *(n)* the part of an object that you use to carry, move, or hold that object. *A door handle.*
+2. *(v)* to pick something up and hold it in your hands in order to look at it carefully. *Please handle the goods with care.*
+3. *(v)* to deal with someone or something. *Katy is very good at handling tricky situations.*
+
+---
+
+**handlebars** *(plural n)* the bar at the front of a bicycle or motorcycle that you use to steer. See **bicycle**.
+
+---
+
+**handshake** *(n)* a way of greeting someone by taking their hand and shaking it.
+
+---
+
+**handsome** *(adj)* attractive, or good looking.
+
+---
+
+**handstand** *(n)* When you do a **handstand**, you balance on your hands, with your feet up in the air.
+
+---
+
+**handwriting** *(n)* the style you use for forming letters and words when you write. *Archibald has very neat handwriting.*
+
+---
+
+**handy** *handier handiest*
+1. *(adj)* useful and easy to use.
+2. *(adj)* skilful. *Sasha is handy with a power drill.*
+3. *(adj)* close by. *Is there a cloth handy?*
+
+---
+
+**hang** *hanging hung* or *hanged*
+1. *(v)* to fix something somewhere by attaching the top of it and leaving the bottom free. *Hang your coat on this hook.*
+2. *(v)* to kill someone by putting a rope around their neck and then taking the support from under their feet. The past tense and past participle of this sense of the verb is "hanged".
+3. **hang up** *(v)* to end a telephone conversation by putting down the receiver.
+4. **hang out** *(v) (informal)* to spend a lot of time in a place.
+
+---
+
+**hangar** *(n)* a large building where aircraft are kept.
+
+---
+
+**hanger** *(n)* a piece of specially shaped wood, metal, or plastic used for hanging up clothes.
