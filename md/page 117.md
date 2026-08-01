@@ -65,3 +65,44 @@
 
 **haunt** *haunting haunted*
 1. *(v)* If a ghost **haunts** a place, it visits it often. **haunted** *(adj)*
+2. *(v)* If something **haunts** you, you keep worrying about it. *Laura was haunted by the memory of the child's face.* **haunting** *(adj)*
+3. *(n)* a place you have visited often.
+
+---
+
+**have** *having had*
+1. *(v)* to own or possess something. *I have a new bicycle.*
+2. *(v)* to experience or enjoy something. *Let's have some fun!*
+3. *(v)* to receive or get something. *Did you have some lunch?*
+
+---
+
+**haven**
+1. *(n)* a harbour.
+2. *(n)* a safe place.
+
+---
+
+**havoc** *(n)* great damage and chaos. *The floods have wreaked havoc.*
+
+---
+
+**hawk** *(n)* a bird of prey, with a hooked beak and sharp claws, that eats other birds and small animals.
+
+---
+
+**hay** *(n)* grass which is dried and fed to farm animals.
+
+---
+
+**hay fever** *(n)* an allergy to pollen or grass that makes you sneeze, makes your eyes water, and can make you wheeze.
+
+---
+
+**haystack** *(n)* a large pile of hay.
+
+---
+
+**hazard** *hazarding hazarded*
+1. *(n)* a danger, or a risk. *A fine hazard.* **hazardous** *(adj)*
+2. *(v)* to risk or take a chance on something. *I'll hazard a guess at the answer.*
