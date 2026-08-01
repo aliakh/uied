@@ -27,3 +27,41 @@
 **hat**
 1. *(n)* an item of clothing that you wear on your head.
 2. **hat trick** *(n)* three successes in a row, such as three goals in a row in a football match.
+
+---
+
+**hatch** *hatches hatching hatched*
+1. *(v)* When an egg **hatches**, a baby bird, reptile, or fish breaks out of it.
+2. *(n)* a covered hole in a floor, door, wall, or ceiling. *A serving hatch.*
+
+---
+
+**hatchback** *(n)* a car with a rear door that opens upwards.
+
+---
+
+**hatchet** *(n)* a small axe.
+
+---
+
+**hate** *hating hated* *(v)* to dislike or detest someone or something. **hate** *(n)*, **hatred** *(n)*
+
+---
+
+**hateful** *(adj)* horrible.
+
+---
+
+**haughty** *haughtier haughtiest* *(adj)* If you are **haughty**, you are very proud and look down on other people. **haughtily** *(adv)*
+
+---
+
+**haul** *hauling hauled*
+1. *(v)* to pull something with difficulty. *Pandora hauled the sack of potatoes into the shed.*
+2. *(n)* a distance to be travelled. *The flight between London and Sydney is a long haul.*
+3. *(n)* a quantity of something that is caught. *A big haul of fish.*
+
+---
+
+**haunt** *haunting haunted*
+1. *(v)* If a ghost **haunts** a place, it visits it often. **haunted** *(adj)*
