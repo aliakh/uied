@@ -47,3 +47,56 @@ the Jewish festival of lights, when Jews remember the purification of the Temple
 
 **harbour** harbouring harboured
 1. *(n)* a place where ships shelter or unload their cargo.
+2. *(v)* to look after someone secretly.
+
+---
+
+**hard** harder hardest
+1. *(adj)* firm and solid. *A hard bed.* **hardness** *(n)*
+2. *(adj)* difficult. *A hard exam.* **hardness** *(n)*
+3. *(adj)* strong or powerful. *Hard drugs.*
+4. *(adj)* tough and brave.
+
+---
+
+**hardboard** *(n)* stiff board made from pressed wood pulp.
+
+---
+
+**hard copy** *(n)* a printed version of a document created by a computer.
+
+---
+
+**hard disk** *(n)* a disk inside a computer, used for storing large amounts of data. *See* **computer**.
+
+---
+
+**harden** hardening hardened
+1. *(v)* to become harder, or to make something harder.
+2. *(v)* to become tough and unfeeling. *The emperor hardened himself against the complaints of his subjects.* **hardened** *(adj)*
+
+---
+
+**hardly** *(adv)* scarcely, or only just. *I could hardly wait to open my gifts.*
+
+---
+
+**hardship** *(n)* difficulty, or suffering.
+
+---
+
+**hardware**
+1. *(n)* tools and other household equipment.
+2. *(n)* computer equipment, such as a printer or VDU.
+
+---
+
+**hardwood** *(n)* strong, hard wood from deciduous trees, such as oak, beech, or ash.
+
+---
+
+**hardy** hardier hardiest *(adj)* If a person, an animal, or a plant is **hardy**, they are tough and can survive in very difficult conditions.
+
+---
+
+**hare** *(n)* a mammal like a large rabbit, with long, strong back legs. *Male and female hares often live together before they mate.*
