@@ -100,3 +100,35 @@ the Jewish festival of lights, when Jews remember the purification of the Temple
 ---
 
 **hare** *(n)* a mammal like a large rabbit, with long, strong back legs. *Male and female hares often live together before they mate.*
+
+---
+
+**harm** harming harmed *(v)* to injure or hurt someone or something. **harm** *(n)*, **harmful** *(adj)*
+
+---
+
+**harmonica** *(n)* a small musical instrument, played by blowing out and drawing in your breath through the mouthpiece. *Harmonicas contain two sets of reeds fixed to reed plates above and below the mouthpiece. The reeds are left free at one end so that they can vibrate and produce notes when air passes over them.*
+
+---
+
+**harmony** harmonies
+1. *(n)* agreement. *The team worked in harmony.* **harmonious** *(adj)*
+2. *(n)* a pleasant-sounding set of musical notes played at the same time. **harmonious** *(adj)*
+
+---
+
+**harness** harnesses harnessing harnessed
+1. *(n)* a set of leather straps on a horse, used to control it. *See* **tack**.
+2. *(n)* an arrangement of straps, used to keep someone safe. *A climbing harness. See* **rock climbing**.
+3. *(v)* to control and use something. *We can now create electricity by harnessing the Sun's energy.*
+
+---
+
+**harp** harping harped
+1. *(n)* a large, triangular musical instrument with strings that you play by plucking. **harpist** *(n)*
+2. *(v)* If you **harp on** about something, you keep talking about it.
+
+---
+
+**harsh** harsher harshest
+1. *(adj)* unpleasant, or cruel. *A harsh punishment.* **harshly** *(adv)*
